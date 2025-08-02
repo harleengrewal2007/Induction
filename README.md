@@ -16,11 +16,11 @@ Overview of course structure and evaluation methods
 
 Introduction to student clubs, societies, and events
 
-Interactive games and ice-breaking sessions
-
 Students shared expectations and career aspirations
 
 Campus tour showcasing facilities
+
+
 
 
 
