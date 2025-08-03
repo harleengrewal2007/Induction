@@ -66,15 +66,18 @@ Adding a heartfelt and youthful perspective to the event, I  Harleen Kaur Grewal
 
 The program was then elevated by the magnetic presence of Dr. Parminder Singh, Dean of Student Welfare, whose motivational words injected a surge of positivity into the auditorium. His emphasis on mental well-being, co-curricular engagement, and balanced growth was both reassuring and empowering.
 
-The event reached a moment of profound inspiration with the keynote address by Dr. Sehajpal Singh, Principal of GNDEC. His visionary words highlighted the importance of integrity, innovation, and intent in academic life. Encouraging students to think beyond the conventional, he invoked them to be architects of change, not just seekers of degrees.
+The event reached a moment of profound inspiration with the keynote address by Dr. Sehajpal Singh, Principal of GNDEC. His visionary words highlighted the importance of integrity, innovation, and intent in academic life. Encouraging students to think beyond the conventional, he invoked them to be architects of change, not just seekers of degrees.He expressed his joy at seeing the auditorium filled exclusively with students from the Computer Science and Information Technology branches—a testament to the growing popularity and demand of these fields in today’s world. He emphasized that while these branches have played a significant role in societal transformation over the past two decades, every branch of engineering holds equal importance in shaping civilization, lifestyle, and the quality of life. Welcoming the students warmly, he highlighted their immense potential and capabilities, reminding them that their growth and success ultimately depend on their own efforts, choices, and dedication.
 
 The college had the immense honor of hosting two distinguished Guests of Honour:
 
 Shri Ravindra Garg, Chief Engineer, Municipal Corporation, Ludhiana, addressed the students with a heartfelt and impactful message. He encouraged them to enjoy their college life but reminded them to do so within limits and with responsibility. Emphasizing the sacrifices and investments made by their parents, he urged students not to take this phase of life lightly. He left them with a powerful thought: “If you choose to enjoy now without discipline, you may suffer later; but if you stay focused now, you will enjoy the fruits of your efforts in the future.” His words served as a timely reminder of the importance of balance, gratitude, and long-term vision in a student’s life.
 
 Engineer Rakesh Kumar, a distinguished alumnus from the 1991 batch and currently serving as ADC, Ludhiana, delivered an inspiring address that beautifully bridged the past and present. Reflecting on his own journey from the classrooms of GNDEC to a position of administrative leadership, he credited the college for laying the strong foundation of his career. With deep emotion, he shared the poetic line:
+
 “ਕਲੇਜੇ ਤੀਰ ਦੇਖਣ ਨੂੰ, ਤੇ ਸਿਰ ਤੇ ਤਾਜ ਦੇਖਣ ਨੂੰ,
+
 ਬੜੀ ਬੇਤਾਬ ਹੈ ਦੁਨੀਆ, ਤੇਰੀ ਪਰਵਾਜ਼ ਦੇਖਣ ਨੂੰ”
+
 —reminding students that the world eagerly watches their rise, their struggles, and their triumphs. His words resonated deeply, encouraging students to aim high and honor the legacy of the institution through their actions and achievements.
 
 "Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful." – Albert Schweitzer
