@@ -1,5 +1,5 @@
 # Induction
-Report on Induction event at  GNDEC,Ludhiana(2025)on 70 years of celebration.
+***Report on Induction event at  GNDEC,Ludhiana(2025)on 70 years of celebration***
 
 **Institution:** Guru Nanak Dev Engineering College, Ludhiana
 
@@ -9,7 +9,7 @@ Report on Induction event at  GNDEC,Ludhiana(2025)on 70 years of celebration.
 
 **Organized by:** Department of Applied Sciences
 
-**#HIGHLIGHTS**
+***#HIGHLIGHTS***
 
 -Blessings ceremony at gurduwara sahib
 
