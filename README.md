@@ -132,6 +132,13 @@ Following the insightful session on nutrition and wellness by Dr. Arshdeep Singh
 
 Day 2 concluded with a well-rounded experience that combined academic assessment, health awareness, and technical learning. The sessions equipped students with essential insights and skills, laying a solid foundation for their journey at GNDEC.
 
+***INDUCTION PROGRAMME:DAY3***
+
+**AUGUST 2,2025**
+
+**#HIGHLIGHTS**
+
+
 
 
 
