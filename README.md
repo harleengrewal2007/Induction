@@ -90,6 +90,50 @@ With this, the corridors of GNDEC echo not only with knowledge but with stories 
 I extend my heartfelt gratitude to the management, faculty, organizing team,all the dignitaries, speakers, and participants for making the opening of the Student Induction Program 2025 a truly memorable and impactful event.
 
 **INDUCTION PROGRAMME:DAY2**
+
 **AUGUST 1,2025**
+
+***#HIGHLIGHTS***
+
+-English Proficiency Test
+
+-Maths Proficiency Test
+
+-Satya Scholarship Program 2025
+
+-Expert Lecture by Dr.Arshdeep Singh on"Food:A Pivotal Role In Student's Overall Wellness" 
+
+**Day 2: Nurturing Minds, Fueling Potential,From Equations to Energy:– The Journey Deepens at GNDEC**
+
+The day dawned bright as Day 2 of the Student Induction Programme at Guru Nanak Dev Engineering College, Ludhiana, unfolded with a strong focus on academic readiness and holistic wellness. The schedule included English and Mathematics Proficiency Tests, designed to help students evaluate their foundational skills and identify key areas for growth as they embark on their engineering journey. The structured assessments served as the first step in aligning students with the academic expectations of the institution.
+
+Another important segment of Day 2 was the introduction of the Satya Scholarship Programme, a valuable initiative aimed at supporting and empowering meritorious students with financial assistance and skill-building opportunities. Professionals from Noida, representing the organization behind the scholarship, addressed the students and provided a comprehensive overview of the program. They elaborated on the eligibility criteria, application process, and long-term benefits of the scholarship, highlighting how it is designed not only to alleviate financial burdens but also to promote academic excellence, leadership, and social responsibility among students.
+
+Throughout the session, Mrs. Harpreet Kaur Garewal, Head of the Department of Applied Sciences, actively engaged with the students, encouraging them to ask questions and clarify doubts. Her interactive approach helped bridge the communication between the presenters and the students, ensuring that the information was well understood and accessible to all. Her presence added a personal and motivational touch to the session, inspiring students to take advantage of such opportunities that can significantly enhance their educational journey.
+
+A significant highlight of Day 2 was the expert lecture delivered by Dr. Arshdeep Singh, a seasoned professional in Food Technology at Punjab Agricultural University (PAU), Ludhiana. His session, titled “Food: A Pivotal Role in Student’s Overall Wellness,” offered the students valuable insights into the critical link between nutrition, lifestyle, and academic performance.
+
+Dr. Singh began by emphasizing the importance of incorporating nutritionally rich and traditional foods such as millets and ghee into one’s daily diet. He explained that while our ancestors consumed large quantities of such foods due to their physically intensive lifestyles, today’s generation must consume them mindfully in line with modern activity levels. He introduced the concept of nutraceuticals—foods that provide medicinal or health benefits—including dark chocolate, advising students to choose such healthier alternatives for sustained growth and wellness.
+
+He cautioned against the excessive consumption of refined sugars and carbonated beverages, pointing out that popular soft drinks like cola contain phosphoric acid and chemical sugars that can be harmful, while other sugary drinks often contain sucrose, offering little to no nutritional value. He highlighted that many so-called fruit drinks are merely flavored sugar beverages and not real fruit-based products.
+
+Furthermore, he addressed popular fitness misconceptions, clarifying doubts related to the use of protein supplements among gym-going students. He explained the science behind macronutrients and stressed the importance of sourcing proteins and nutrients from natural, balanced diets over commercial products whenever possible.
+
+One particularly impactful moment came when he addressed a common myth surrounding vitiligo, clarifying that it is a hereditary condition, not one caused by any particular food combination. His empathetic approach helped dispel fears and remove stigma related to the condition.
+
+He concluded the session by encouraging students to make informed dietary choices, manage their stress levels to avoid emotional overeating, and approach wellness with a balanced and educated mindset. His talk was not only informative but also highly engaging, leaving students with a deeper appreciation of how food choices directly impact their academic success, physical health, and emotional well-being.
+
+Following the insightful session on nutrition and wellness by Dr. Arshdeep Singh, the focus shifted to technical skill-building, essential for students in the fields of Computer Science and Information Technology. College faculty and technical professionals conducted a practical tutorial on GitHub, one of the most widely used platforms for version control and collaborative software development. Students were guided through the account creation process, introduced to key features of the platform, and shown how to begin building a professional coding portfolio.
+
+**Closing Note – Day 2**
+
+Day 2 concluded with a well-rounded experience that combined academic assessment, health awareness, and technical learning. The sessions equipped students with essential insights and skills, laying a solid foundation for their journey at GNDEC.
+
+
+
+
+
+
+
 
 
