@@ -1,25 +1,29 @@
 # Induction
 Report on Induction event at  GNDEC,Ludhiana(2025)on 70 years of celebration.
-Institution: Guru Nanak Dev Engineering College, Ludhiana
 
-Date: 31st August,2025
+**Institution:** Guru Nanak Dev Engineering College, Ludhiana
 
-Location: College Auditorium
+**Date:** 31st August,2025
 
-Organized by: Department of Applied Sciences
+**Location:** College Auditorium
 
-**HIGHLIGHTS**
+**Organized by:** Department of Applied Sciences
 
-Warm welcome by the Principal and faculty members
+**#HIGHLIGHTS**
 
-Overview of course structure and evaluation methods
+-Blessings ceremony at gurduwara sahib
 
-Introduction to student clubs, societies, and events
+-Warm welcome by the Principal and faculty members
 
-Students shared expectations and career aspirations
+-Overview of course structure and evaluation methods
 
-Campus tour showcasing facilities
+-Introduction to student clubs, societies, and events
 
+-Students shared expectations and career aspirations
+
+-Campus tour showcasing facilities
+
+-
 
 
 
