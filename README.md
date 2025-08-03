@@ -138,6 +138,23 @@ Day 2 concluded with a well-rounded experience that combined academic assessment
 
 **#HIGHLIGHTS**
 
+-Expert Lecture by Dr. Jaswinder Singh (Incharge- IAPT) - AUDITORIUM
+
+-Expert Lecture by Dr. Priya Darshni Madam on "Universal Human Values" - AUDITORIUM
+
+***Rooted in Values, Rising with Vision – Day 3 of the Student Induction Program 2025 at GNDEC Ludhiana***
+
+The third day of the Student Induction Program 2025 at Guru Nanak Dev Engineering College, Ludhiana, continued to inspire and inform the newly admitted students of the Computer Science and Engineering and Information Technology branches. Held in the college auditorium, the day's agenda focused on cultivating intellectual curiosity, ethical grounding, and personal growth.
+
+The program opened with an engaging and thought-provoking session by Dr. Jaswinder Singh, recipient of the Siksharatan Award, who brought science to life through interactive demonstrations and live experiments. His unique teaching style sparked curiosity and transformed traditional learning into a memorable experience for the students.
+
+The event was further elevated by the presence of the Chief Guest, Sardar Gurcharan Singh Grewal, a respected member of the Shiromani Gurdwara Parbandhak Committee (SGPC) and the Nankana Sahib Education Trust. In his address, he emphasized the need to uphold cultural and moral values while pursuing academic success. His words resonated with the students, urging them to remain grounded, disciplined, and focused as they navigate their educational journey.
+
+A key session of the day was conducted by Dr. Priyadarshini, a prominent voice in the field of Universal Human Values. She spoke on the indispensable role of ethics and empathy in technical education and professional life. Her session encouraged students to view engineering not only as a career path but also as a means to serve society with responsibility and integrity.
+
+As the day drew to a close, students were left with a renewed understanding that knowledge gains significance when coupled with values. Day 3 successfully reinforced GNDEC’s commitment to shaping not just skilled engineers, but conscientious and value-driven individuals ready to contribute meaningfully to the world.
+
+
 
 
 
