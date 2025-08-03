@@ -8,7 +8,7 @@ Location: College Auditorium
 
 Organized by: Department of Applied Sciences
 
-#Highlights
+**HIGHLIGHTS**
 
 Warm welcome by the Principal and faculty members
 
