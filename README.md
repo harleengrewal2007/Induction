@@ -9,7 +9,7 @@
 
 **Organized by:** Department of Applied Sciences
 
-***#HIGHLIGHTS***
+***#HIGHLIGHTS*** ##H3
 
 -Blessings ceremony at gurduwara sahib
 
