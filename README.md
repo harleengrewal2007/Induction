@@ -190,6 +190,14 @@ Drawing a timeless comparison, Dr. Singh urged students to become seekers like G
 "ਇਕੁ ਸੰਸਾਰੀ, ਇਕੁ ਭੰਡਾਰੀ, ਇਕੁ ਲਾਏ ਦੀਬਾਣੁ ॥"
 " ਜਿਵ ਤਿਸੁ ਭਾਵੈ, ਤਿਵੈ ਚਲਾਵੈ, ਜਿਵ ਹੋਵੈ ਫੁਰਮਾਣੁ ॥"
 Meaning that the One is the Creator, Sustainer, and Destroyer—the ultimate power that governs the universe. This story served not just as a spiritual lesson, but also as a reminder to students to ask questions, seek understanding, and learn with depth and reverence.
+ He  introduced the students to the concept of ਅਧਿਆਤਮ (spirituality)—the journey inward. He urged everyone to practice introspection, to “see with closed eyes and listen without ears,” reminding us that the answers we seek are not scattered across the world, but reside within us. “We keep searching outside,” he said, “but what is truly lost lies within.”
+
+He recited the shabad:
+"ਕੀਤਾ ਪਸਾਉ ਏਕੋ ਕਵਾਉ, ਤਿਸ ਤੇ ਹੋਏ ਲਖ ਦਰੀਆਉ ॥"
+(You created the vast expanse of the Universe with One Word. Hundreds of thousands of rivers began to flow.)
+
+ It reflects the infinite power of the Divine, whose presence surrounds us at every moment—we only need to change the way we perceive. His message was clear: God exists. Truth exists. But we must learn to seek it with the right vision—the vision of inner awareness.
+
 
 
 A key session of the day was conducted by Dr. Priyadarshini, a prominent voice in the field of Universal Human Values. She spoke on the indispensable role of ethics and empathy in technical education and professional life. Her session encouraged students to view engineering not only as a career path but also as a means to serve society with responsibility and integrity.
