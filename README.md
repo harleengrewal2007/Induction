@@ -184,6 +184,12 @@ To encapsulate this thought, he recited a stirring verse by Bhai Veer Singh Ji:
 ਓਹ ਦਿਨੇ ਰਾਤ ਪਏ ਵਹਿੰਦੇ ।"
 
 These lines painted the image of restless yearning—those who have once tasted the pull of deep longing, of true love, of purpose, cannot rest. Their minds and souls, like ever-flowing streams, continue to move—seeking, thinking, questioning. Dr. Singh beautifully tied this to the essence of science itself, saying, “Science begins with wonder—with the desire to know.” In that moment, learning became more than curriculum—it became a journey of the spirit.
+Dr. Jaswinder Singh continued to inspire with the message that life is a once-in-a-lifetime gift—and must be lived with purpose and learning at its core. Emphasizing that true success lies in learning, not just studying, he encouraged students to pursue knowledge with sincerity and curiosity. To illustrate this, he shared a profound anecdote from the childhood of Guru Nanak Dev Ji, where the young Nanak humbly questioned his teacher, Gopal Pandha Ji: "I have written 'One'—but why should I proceed to write 'Two' when I have not yet understood 'One'?" This deep humility and thirst for understanding, he said, is what modern students must rediscover.
+
+Drawing a timeless comparison, Dr. Singh urged students to become seekers like Guru Nanak Dev Ji, who spent his entire life in pursuit of the truth and ultimately arrived at the essence of the divine—ੴ (Ik Onkar). He beautifully explained Guru Nanak Dev Ji’s interpretation:
+"ਇਕੁ ਸੰਸਾਰੀ, ਇਕੁ ਭੰਡਾਰੀ, ਇਕੁ ਲਾਏ ਦੀਬਾਣੁ ॥"
+" ਜਿਵ ਤਿਸੁ ਭਾਵੈ, ਤਿਵੈ ਚਲਾਵੈ, ਜਿਵ ਹੋਵੈ ਫੁਰਮਾਣੁ ॥"
+Meaning that the One is the Creator, Sustainer, and Destroyer—the ultimate power that governs the universe. This story served not just as a spiritual lesson, but also as a reminder to students to ask questions, seek understanding, and learn with depth and reverence.
 
 
 A key session of the day was conducted by Dr. Priyadarshini, a prominent voice in the field of Universal Human Values. She spoke on the indispensable role of ethics and empathy in technical education and professional life. Her session encouraged students to view engineering not only as a career path but also as a means to serve society with responsibility and integrity.
