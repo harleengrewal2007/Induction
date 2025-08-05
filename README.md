@@ -150,9 +150,29 @@ The program opened with an engaging and thought-provoking session by Dr. Jaswind
 
 The event was further elevated by the presence of the Chief Guest, Sardar Gurcharan Singh Grewal, a respected member of the Shiromani Gurdwara Parbandhak Committee (SGPC) and the Nankana Sahib Education Trust. In his address, he emphasized the need to uphold cultural and moral values while pursuing academic success. His words resonated with the students, urging them to remain grounded, disciplined, and focused as they navigate their educational journey.
 
+Absolutely, Harleen. Here's a **professionally written and beautifully worded paragraph** that captures the essence of **Dr. Jaswinder Singh's** session and can be added seamlessly to your Day 3 report:
+
+---
+
+**Dr. Jaswinder Singh’s** session was not only educational but deeply **philosophical and inspiring**. He began by engaging students with the profound meaning behind the greeting *"Sat Sri Akal"*, encouraging them to reflect on its spiritual depth. With a powerful message of **"doing less, but doing it with efficiency and focus,"** he motivated students to value clarity and depth in learning over mere quantity. Highlighting the **role of teachers as guides and well-wishers**, he reminded students that while everything may feel new, the faculty's mission is to **support, uplift, and help them rise**.
+
+He emphasized the importance of building a **strong foundation**, noting that while the structure may be ready, the **base often remains fragile**—and this is where students must begin. Expressing gratitude for his journey, he humbly acknowledged, *“What I am today is because of ੴ.”*
+
+Dr. Singh beautifully connected **science, spirituality, and education**, explaining that **Gurbani is like a seed of success**—which grows into branches, flowers, and fruits, each carrying the potential to plant new beginnings. He spoke of **mathematics as the universal foundation**, the root of time, science, and understanding itself, yet a subject feared by many. Urging students to **face challenges without fear**, he encouraged them to **seek help, stay curious, and trust the learning process**.
+
+Quoting poet **Surjit Patar**, he left a lasting impact with the words:
+*"ਮੈਂ ਰਾਹਾਂ ਤੇ ਨਹੀਂ ਤੁਰਦਾ, ਮੈਂ ਤੁਰਦਾ ਹਾਂ ਤਾਂ ਰਾਹ ਬਣਦੇ ਨੇ"* –
+*“I don’t walk on paths, I walk and paths are created.”*
+This line became a powerful reminder for students to **lead with courage, create their own journey, and redefine success on their own terms.**
+
+---
+
+Let me know if you'd like a shorter version or this made into a highlight quote section!
+
 A key session of the day was conducted by Dr. Priyadarshini, a prominent voice in the field of Universal Human Values. She spoke on the indispensable role of ethics and empathy in technical education and professional life. Her session encouraged students to view engineering not only as a career path but also as a means to serve society with responsibility and integrity.
 
 As the day drew to a close, students were left with a renewed understanding that knowledge gains significance when coupled with values. Day 3 successfully reinforced GNDEC’s commitment to shaping not just skilled engineers, but conscientious and value-driven individuals ready to contribute meaningfully to the world.
+
 
 
 
