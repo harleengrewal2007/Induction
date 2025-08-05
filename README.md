@@ -162,6 +162,17 @@ Quoting poet **Surjit Patar**, he left a lasting impact with the words:
 *“I don’t walk on paths, I walk and paths are created.”*
 This line became a powerful reminder for students to **lead with courage, create their own journey, and redefine success on their own terms.**
 
+Further enriching his session, Dr. Jaswinder Singh urged the students to realign their focus with purpose and intention. He emphasized that while Gurbani serves as a guiding light, helping one channelize energy and thoughts, the real challenge lies within the students themselves. He poignantly pointed out a fundamental flaw in the current learning culture: “Children sit in classrooms without knowing how to truly be present, without understanding their purpose, or how to manage time—they are living without direction.” Reframing the idea of education, he stated that “classrooms are not just rooms for teaching; they are training grounds for life.”
+
+He encouraged the students to begin their transformation with self-reflection—to look into the mirror, face themselves with honesty, and have a conversation with their own soul. Drawing inspiration from the legendary Punjabi poet Bhai Veer Singh Ji, he narrated a moving poetic moment where the poet, in deep contemplation, conversed with a rose on a calm morning—and the flower, as if awakened by emotion, seemed to respond. He recited the lines:
+
+"ਡਾਲੀ ਨਾਲੋਂ ਤੋੜ ਨ ਸਾਨੂੰ, ਅਸਾਂ ਹੱਟ 'ਮਹਿਕ' ਦੀ ਲਾਈ!
+ਲੱਖ ਗਾਹਕ ਜੇ ਸੁੰਘੇ ਆਕੇ, ਖਾਲੀ ਇਕ ਨ ਜਾਈ,
+ਤੂੰ ਜੇ ਇਕ ਤੋੜ ਕੇ ਲੈ ਗਿਓ, ਇਕ ਜੋਗਾ ਰਹਿ ਜਾਸਾਂ,—
+ਉਹ ਭੀ ਪਲਕ ਝਲਕ ਦਾ ਮੇਲਾ– ਰੂਪ ਮਹਿਕ ਨਸ ਜਾਈ।੧੩"
+
+Through this sir beautifully conveyed that true essence cannot be plucked, possessed, or rushed—it must be experienced, respected, and allowed to blossom naturally. The poetry was not just a literary reference but a gentle call to the students to live mindfully, seek depth, and honour their own uniqueness, just as a flower spreads fragrance without losing its identity.
+
 
 A key session of the day was conducted by Dr. Priyadarshini, a prominent voice in the field of Universal Human Values. She spoke on the indispensable role of ethics and empathy in technical education and professional life. Her session encouraged students to view engineering not only as a career path but also as a means to serve society with responsibility and integrity.
 
