@@ -173,6 +173,18 @@ He encouraged the students to begin their transformation with self-reflection—
 
 Through this sir beautifully conveyed that true essence cannot be plucked, possessed, or rushed—it must be experienced, respected, and allowed to blossom naturally. The poetry was not just a literary reference but a gentle call to the students to live mindfully, seek depth, and honour their own uniqueness, just as a flower spreads fragrance without losing its identity.
 
+Continuing his deeply philosophical address, Dr. Jaswinder Singh drew a powerful metaphor from nature—the flow of water. He asked a simple yet profound question: “Does water ever stop?” The answer, echoing in silence, became the basis of his reflection on movement, persistence, and purpose. Just like water, he said, a seeker, a learner, a dreamer must keep flowing—uninterrupted and unafraid.
+
+To encapsulate this thought, he recited a stirring verse by Bhai Veer Singh Ji:
+
+"ਚਸ਼ਮੇ ਦਾ ਉਤ-
+ਸੀਨੇ ਖਿੱਚ ਜਿਨ੍ਹਾਂ ਨੇ ਖਾਧੀ,
+ਓਹ ਕਰ ਅਰਾਮ ਨਹੀਂ ਬਹਿੰਦੇ ।
+ਨਿਹੁੰ ਵਾਲੇ ਨੈਣਾਂ ਕੀ ਨੀਂਦਰ,
+ਓਹ ਦਿਨੇ ਰਾਤ ਪਏ ਵਹਿੰਦੇ ।"
+
+These lines painted the image of restless yearning—those who have once tasted the pull of deep longing, of true love, of purpose, cannot rest. Their minds and souls, like ever-flowing streams, continue to move—seeking, thinking, questioning. Dr. Singh beautifully tied this to the essence of science itself, saying, “Science begins with wonder—with the desire to know.” In that moment, learning became more than curriculum—it became a journey of the spirit.
+
 
 A key session of the day was conducted by Dr. Priyadarshini, a prominent voice in the field of Universal Human Values. She spoke on the indispensable role of ethics and empathy in technical education and professional life. Her session encouraged students to view engineering not only as a career path but also as a means to serve society with responsibility and integrity.
 
