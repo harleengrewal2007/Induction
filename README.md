@@ -279,6 +279,14 @@ As the day drew to a close, students were left with a renewed understanding that
 Closing Note – Day 3
 Day 3 of the induction program concluded on a thoughtful and transformative note. From deep philosophical insights to hands-on scientific experiments, the sessions inspired students to reflect on their purpose, values, and aspirations. With a blend of spirituality, science, and self-awareness, the day encouraged every student to begin the journey of learning—not just for knowledge, but for life itself.
 
+***INDUCTION PROGRAMME:DAY 4***
+
+**AUGUST 4,2025**
+
+**HIGHLIGHTS**
+
+-Peer to peer learning sesssion
+
 
 
 
