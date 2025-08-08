@@ -435,6 +435,190 @@ Dr. Kamra stressed that creativity in technicality, not just coding, is key. He 
 
  Respected Randhir Singh  conducted an informative session focused on the conduct of examinations. He stressed that ignorance of rules is not an excuse, as clearly stated in the constitution. Students were introduced to the academic portal and its functionalities, including online assessments and accessing important exam-related information. He also explained the concept of makeup examinations and emphasized the importance of academic integrity and timely awareness of regulations.
 
+** "Six Days to the Soul" **
+ 
+ **A Poetic Reflection of an Unforgettable Induction Journey-By Harleen Kaur Grewal**
+
+Day One began, not with noise, but grace, 
+
+A whisper of truth in a fast-running race.
+
+They said: "Don’t just study—learn to feel,
+
+This one life—make it honest, make it real.
+
+A story unfolded, of a boy divine, 
+
+Who paused at “one” on learning’s line.
+
+He questioned not to rebel, but to see— And found God in humility. 
+
+"ੴ" whispered through ancient air,
+
+One source, one truth, always there. 
+
+Ask, introspect, eyes closed tight— 
+
+We seek outside, but God is light.
+
+Then a bowl sang—not words, but tone, 
+
+Its echo taught: you're not alone. 
+
+A teacher’s hand can shape your tune, 
+
+From noise to resonance, like a sacred rune.
+
+We learned of bones and what they meant— 
+
+Not just in number, but how time is spent. 
+
+A seed was shown, and with it prayer,
+
+That growth begins with roots laid bare.
+
+The stars above told Dhruva’s tale, 
+
+Of hurt, of hope, of setting sail. 
+
+In forest deep, he found his place, 
+
+Not in court, but in God’s grace.
+
+A number, 108, graced the board, 
+
+A mystery held in symbols stored.
+
+One for the divine, the zeroes aligned— 
+
+And eight, the world we often mind.
+
+Balance, they said, is the subtle key, 
+
+To live, to love, and truly be.
+
+Close your eyes, and see beyond,
+
+Feel the truth—deep and fond. 
+
+The mind’s a river, running fast,
+
+But peace is found when we let go, at last.
+
+Then voices came, soft yet strong,
+
+Asking, “What if we’ve been wrong?”
+
+Do dreams lead us toward the light? 
+
+Or further from what feels right? 
+
+Eighteen years behind us lie— 
+
+Do we chase stars or ask the sky?
+
+Happiness isn’t name or gold, 
+
+But being fulfilled in the stories we hold.
+
+We learned of loops—of mind and thought,
+
+Of anger's cost, of peace well sought.
+
+A circus within us, wild and loud,
+
+Yet stillness makes the soul feel proud.
+
+To choose what’s right, not guided blind,
+
+But by the compass we hold inside.
+
+Imagination, behavior—branches wide,
+
+But roots must rest where truth resides. 
+
+From sensation to acceptance, we’re often led—
+
+But the truest path lies just ahead.
+
+No borrowed light, no echoed scream, 
+
+Just self-found truth, a living dream.
+
+And then—force, a word so deep,
+
+To pump our will, to wake from sleep.
+
+The mind, they said, outruns the sound,
+
+But only discipline can hold it down. 
+
+Apply the pressure, become your guide— 
+
+No mountain tall, no tide too wide.
+
+Life is rise and fall—
+
+But right approach answers all.
+
+Clubs were born with visions bright,
+
+To spark the minds, to fan the light.
+
+Marketing digital, creative skill,
+
+A platform to dream, a chance to fulfill.
+
+Not just code or marks or race,
+
+But growth in heart, in time, in place.
+
+We clapped with empty hands that day, 
+
+Still felt the spark in every way.
+
+Extra effort, the final stride— 
+
+To never give up, to never hide.
+
+They asked us: What is life’s true aim? 
+
+Is it wealth, or title, or fleeting fame? 
+
+Or is it the courage to break the chain,
+
+To smile through loss, to rise through pain?
+
+Is it knowing when to stand alone, 
+
+Yet never forgetting you’ve always grown?
+
+And as the days came to a close, 
+
+We felt the stir, the breath, the prose.
+
+This wasn’t just an introduction—it was more,
+
+It cracked us open, reached our core.
+
+We didn’t just meet a college gate—
+
+We walked through doors carved by fate.
+
+A home of thought, a ground so wide, 
+
+Where learning walks with soul as guide.
+
+Six days, six seeds now in our hand,
+
+Watered with wisdom, ready to stand.
+
+We leave not just with plans or goal— 
+
+But with a light stitched to the soul. 
+
+**THANKYOU**
+
 
 
 
