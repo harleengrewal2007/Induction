@@ -254,13 +254,41 @@ In a lively demonstration, Sir poured fuel into a bottle, lit it, and the bottle
 
 In a powerful moment, Sir wrote "ਭਗਵਾਨ" on the board and said, “Now you can't say you've never seen God.” He explained that the universe was created with five elements, and even today, science has not discovered a sixth. No one has the power to unite these five elements the way the Creator did.
 
+**Embracing the Essence of Life: A Soulful Session by Priya Darshni Ma’am**
+
+In a deeply reflective and emotionally stirring session, Priya Darshni Ma’am guided students through the often-overlooked corridors of the human heart and mind under the theme of Universal Human Values. Her words resonated like a quiet call to awaken—not just academically, but spiritually and emotionally.
+
+She invited students to pause and truly ask themselves: What is my aim? What is my passion? Am I moving towards it, or away from it? She spoke not just of careers or academics, but of dreams, aspirations, and the silent desires of the soul—the ones we often bury beneath expectations and noise.
+
+Ma’am beautifully unfolded the truth that being independent is not just about standing alone, but about standing true—true to oneself, one’s purpose, and one’s inner calling. In a world obsessed with name, fame, and money, she reminded us that the real treasures of life lie in happiness and prosperity of the heart—not just the wallet.
+
+She posed heartfelt questions that made everyone pause and reflect:
+Have the 15 or 18 years we’ve lived so far brought us closer to joy, or further into stress? Are we racing ahead or losing our way? Are we building a future or just surviving the present?
+
+Her message was clear and powerful: Happiness is not a destination but a direction. And prosperity is not just about wealth, but about inner richness, balance, and contentment. But to walk this path, we must first open our eyes, and then our hearts.
+
+She urged the students to evaluate, introspect, and realign—to find not just what they want to become, but who they want to be.
+
+In her words echoed wisdom, and in her presence, a quiet strength that moved many hearts. It was not just a session. It was a mirror held up to our lives.
 
 
-
-
-A key session of the day was conducted by Dr. Priyadarshini, a prominent voice in the field of Universal Human Values. She spoke on the indispensable role of ethics and empathy in technical education and professional life. Her session encouraged students to view engineering not only as a career path but also as a means to serve society with responsibility and integrity.
+ She spoke on the indispensable role of ethics and empathy in technical education and professional life. Her session encouraged students to view engineering not only as a career path but also as a means to serve society with responsibility and integrity.
 
 As the day drew to a close, students were left with a renewed understanding that knowledge gains significance when coupled with values. Day 3 successfully reinforced GNDEC’s commitment to shaping not just skilled engineers, but conscientious and value-driven individuals ready to contribute meaningfully to the world.
+
+Closing Note – Day 3
+Day 3 of the induction program concluded on a thoughtful and transformative note. From deep philosophical insights to hands-on scientific experiments, the sessions inspired students to reflect on their purpose, values, and aspirations. With a blend of spirituality, science, and self-awareness, the day encouraged every student to begin the journey of learning—not just for knowledge, but for life itself.
+
+
+
+
+
+
+
+
+
+
+
 
 
 
