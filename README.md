@@ -208,7 +208,13 @@ He then demonstrated a wave transmission activity using a string of straws taped
 
 Building on the demonstration, he introduced the fundamental concepts of transverse and longitudinal waves, explaining that both types of waves exist not only in the universe but within ourselves. He spoke about the eyes as optical instruments, explaining how light enables vision—tying basic physics principles to everyday experiences.
 
-In his thought-provoking narrative, he referenced renowned scientists such as Isaac Newton and his discovery of VIBGYOR, and Galileo Galilei, who, despite being misunderstood in his time, is now revered for his contributions. Through these examples, he conveyed that true knowledge often begins with observation and courage to question the norm.
+In his thought-provoking narrative, he referenced renowned scientists such as Isaac Newton and his discovery of VIBGYOR, and Galileo Galilei, who, despite being misunderstood in his time, is now revered for his contributions. Through these examples, he conveyed that true knowledge often begins with observation and courage to question the norm.  
+
+In a deeply symbolic demonstration, he introduced the students to the singing bowl—a traditional instrument known for producing meditative sound frequencies. Initially, he struck the bowl to produce two distinct sounds—one harmonious and pleasant, the other discordant and unsettling. This contrast illustrated how not all noise is music, and not all speech is understanding.
+
+He then began to gently rotate the mallet around the rim of the bowl, gradually creating a resonant, calming tone that enveloped the room. The sustained vibration that emerged was soothing and beautiful, in stark contrast to the earlier jarring sounds.
+
+Through this, he conveyed a powerful metaphor: just as the bowl produces its most harmonious sound when approached with patience and the right technique, students too must learn to truly "listen" to their teachers. He likened the teacher’s role to the guiding hand that carefully draws out a student’s potential—transforming dissonance into resonance. When students attune themselves to learning with focus and respect, the outcome can be as profound and beautiful as the music of the singing bowl.
 
 He further shared the inspiring story of Carl Friedrich Gauss, who, as a young boy, amazed his teacher by quickly calculating the sum of numbers from 1 to 100. While others added numbers sequentially, Gauss cleverly paired them—1 and 100, 2 and 99, and so on—recognizing a pattern and arriving at the answer using a simple formula. Dr. Singh used this to emphasize the power of observation, pattern recognition, and thinking beyond conventional methods.
 
