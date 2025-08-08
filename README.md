@@ -245,6 +245,16 @@ The ‘8’ represents materialism, wealth, and worldly pursuits.
 
 Together, 1-0-8 becomes a powerful metaphor for life: a reminder that while divine connection (1) and universal creation (0) are essential, one must learn to navigate and balance material existence (8) without losing spiritual grounding.
 
+Emphasizing the power of consistent devotion, Sir quoted the sacred verse from Sukhmani Sahib Ji — “ਸਿਮਰਉ ਸਿਮਰਿ ਸਿਮਰਿ ਸੁਖ ਪਾਵਉ” — to beautifully underline the importance of repetition in prayer and remembrance of the Divine.
+
+Furthermore, to deepen the students' understanding of numerical significance, Sir explained that the number 9 symbolizes the universe and holds the key to many mathematical mysteries and solutions. To demonstrate this, he invited a student to write any three-digit number with distinct digits on the board. He then asked the student to reverse the digits and subtract the smaller number from the larger one. To everyone’s amazement, the result of the subtraction consistently turned out to be 247. This simple yet powerful exercise left the students in awe of the inherent patterns and symmetry in mathematics, reinforcing the idea that numbers, too, are a reflection of the universe’s divine order.
+
+In a lively demonstration, Sir poured fuel into a bottle, lit it, and the bottle shot into the air. He explained that oxygen is essential for burning, and carbon dioxide is a byproduct. Through this, he illustrated the basic principle of how vehicle engines work.
+
+
+In a powerful moment, Sir wrote "ਭਗਵਾਨ" on the board and said, “Now you can't say you've never seen God.” He explained that the universe was created with five elements, and even today, science has not discovered a sixth. No one has the power to unite these five elements the way the Creator did.
+
+
 
 
 
