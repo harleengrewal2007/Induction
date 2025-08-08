@@ -287,6 +287,67 @@ Day 3 of the induction program concluded on a thoughtful and transformative note
 
 -Peer to peer learning sesssion
 
+-Expert Lecture by Dr. Priya Darshni Madam on "Universal Human Values" - AUDITORIUM
+
+-Causmic Club
+
+Following an insightful morning of peer-to-peer learning in C++ and the foundational concepts of electronics and electrical engineering, students gathered in the auditorium for a thought-provoking session by Priya Darshni Ma’am, centered on Universal Human Values.
+
+Ma’am began by bringing our scattered attention to one universal struggle: Distraction. Through her words, she gradually peeled away the layers of noise we live with — social pressure, external validation, and the unrelenting buzz of the outside world — to reveal something often neglected: our inner voice.
+
+She spoke of Natural Acceptance, a state of knowing what is right without external instruction. Much like a car knows its direction when driven with clarity, she explained that we too carry our own answers — we only need to listen. Using the analogy of a circus, she reminded us that while the world may be chaotic, it’s our focus that defines the outcome.
+
+Addressing emotions like anger, she emphasized that they are natural, but our reaction is our responsibility. Self-control, she said, is not suppression but self-understanding. “Labs don’t just exist in classrooms,” she noted, “they exist in life.” And life, with all its unpredictability, is the real test bed.
+
+Delving deeper, she introduced the powerful concept of a loop between imagination and behavior. The roots of our decisions — our desires, thoughts, and expectations — stem from imagination. If these are flawed, the behavior that follows can’t be right either. She explained that we often mistake external guidance (pre-conditioning or sensory attraction) for truth, ignoring the compass of our own Natural Acceptance. Whether it's craving a fast bike because of its looks, or reaching for fast food despite knowing it’s unhealthy — these come from temporary inputs, not from inner clarity.
+
+She challenged us to question:
+
+Are we living in contradiction, or are we guided by what truly feels right?
+
+As she spoke on relationship dependency, she laid bare a difficult truth: when our sense of worth depends on someone else's validation, appreciation, or company, we lose our inner anchor. True peace comes when one is independent — guided not by the shifting winds of others’ opinions, but by ethics and self-awareness.
+
+In a world that confuses wants with needs, she beautifully highlighted that physical facilities are for the body, not the self. The body seeks protection and nurture, but the soul seeks continuity of happiness and understanding. These are not given; they are cultivated.
+
+Her question, “What is life?”, echoed deeply. The answer wasn't given in grand theories, but in a simple reflection —
+
+Life is to understand, to grow, and to live with constant happiness and development.
+
+She urged us to stop measuring ourselves through comparisons, and instead guide ourselves first, with clarity, honesty, and self-respect. Because in truth, as she powerfully reminded us — happiness that is dependent is not happiness at all.
+
+As the day unfolded with deep reflections on human values, the next wave of insight came through Harpreet Ma’am, who seamlessly blended psychology, inner discipline, and the realities of human behavior into a powerful session that left many of us reflecting silently.
+
+She began with a strong analogy — the force water pump — to demonstrate that just as we apply force to extract water from the depths of the earth, we need to apply an inner force of discipline to draw out the best within ourselves. Just as water doesn't rise without pressure, transformation doesn’t happen without effort.
+
+"To be a good human being," she said, "you need to apply that inner force every single day."
+
+Harpreet Ma’am emphasized that our mind is the fastest entity in the universe — faster than sound, faster than light — and if left unchecked, it can spiral out of control. But if mastered, it becomes the most powerful tool one can possess.
+She likened this to a remote control, which must lie in our hands, not in the hands of distractions, anger, or comparison.
+
+She reminded us that life is a loop — we are not trapped in it, but we often create our own loops of behavior, emotion, and overthinking. The only way to break these loops is by facing ourselves honestly. Stay honest with yourself, she said, because the moment you lie to yourself, your direction is lost.
+
+Harpreet Ma’am also deeply acknowledged Priya Darshni Ma’am’s selfless contribution, highlighting how someone with a PhD in Electronics, capable of earning accolades and riches, chose to give direction to society without asking for a single rupee. A true example of intention over transaction, purpose over position.
+
+She then guided us toward understanding engineering not just as a subject, but as a mindset.
+
+“Problem-solving in engineering begins when you learn to counsel yourself.”
+“No problem is above you. Nothing in life is greater than your will to overcome.”
+
+She spoke of the human condition — how man is a social animal, and how solitude isn’t weakness, but comparison is poison. We compare too often, she said, and that comparison slowly chips away at our self-worth.
+
+Harpreet Ma’am also delved into the emotional spectrum of life — dukh and sukh, sorrow and joy — and reminded us that these are constants. What defines our journey is how we navigate them, whether we let pain control us or we learn from it.
+
+“Life is a lesson — not always easy, not always fair — but always rich with meaning. You are not just moving from birth to death, you are shaping your destination along the way.”
+
+She concluded with a truth many of us needed to hear — that anger, often born from thoughts, is more damaging to us than anyone else.
+
+“Soch ke gussa aunda hai, par sab ton vadda nuksaan apna hi hunda hai.”
+
+Your willingness to learn, your intention, and your inner voice must become your guiding light. And when that happens, you will no longer be waiting for life to give you meaning —
+you will become the meaning yourself.
+
+
+
 
 
 
