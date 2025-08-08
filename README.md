@@ -276,7 +276,8 @@ In her words echoed wisdom, and in her presence, a quiet strength that moved man
 
 As the day drew to a close, students were left with a renewed understanding that knowledge gains significance when coupled with values. Day 3 successfully reinforced GNDEC’s commitment to shaping not just skilled engineers, but conscientious and value-driven individuals ready to contribute meaningfully to the world.
 
-Closing Note – Day 3
+**Closing Note – Day 3**
+
 Day 3 of the induction program concluded on a thoughtful and transformative note. From deep philosophical insights to hands-on scientific experiments, the sessions inspired students to reflect on their purpose, values, and aspirations. With a blend of spirituality, science, and self-awareness, the day encouraged every student to begin the journey of learning—not just for knowledge, but for life itself.
 
 ***INDUCTION PROGRAMME:DAY 4***
@@ -345,6 +346,15 @@ She concluded with a truth many of us needed to hear — that anger, often born 
 
 Your willingness to learn, your intention, and your inner voice must become your guiding light. And when that happens, you will no longer be waiting for life to give you meaning —
 you will become the meaning yourself.
+
+The day also marked the official launch of the Causmic Club, where the executive members were introduced with great excitement and promise for student-led initiatives ahead.
+
+This was followed by an insightful session by Ayush Sir, who guided students on how to choose the perfect laptop—breaking down specifications, needs, and budgets in a simple, practical manner.
+
+
+**Closing Note – Day 4**
+
+Day 4 concluded on a thoughtful and inspiring note. From technical learning and self-reflection to meaningful discussions on ethics, purpose, and personal growth — the day offered a perfect blend of intellect and introspection. With each session, the journey of transformation continues, gently shaping us into more aware, balanced, and responsible individuals.
 
 
 
