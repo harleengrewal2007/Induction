@@ -383,6 +383,18 @@ Through free-of-cost activities and competitions, the CML helps students tackle 
 
 From Svayam Gyan projects to cultural showcases like Dastaar Muqabla, the Centre nurtures every dimension of a learner, ensuring that each student finds the opportunity to grow — academically, technically, and personally.
 
+In a short yet impactful session, Mr. Arvind Dhingra inspired students with powerful thoughts — emphasizing that giving a little extra can lead to success. He creatively highlighted that even the last letter added to the English alphabet was A, symbolizing excellence. Urging students to fight as a team and never give up, he reminded them that even empty hands can create energy — they just need to clap together.
+
+
+
+
+
+
+
+
+
+
+
 
 
 
