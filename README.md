@@ -62,7 +62,11 @@ Next, the students were graced with the warm and welcoming presence of Mrs. Harp
 
 The academic roadmap was further illuminated by Dr. Akshay Giddar, Dean of Academics, who offered strategic guidance on curriculum planning, time management, and tapping into the academic wealth of the institution. His interaction was both insightful and empowering, demystifying the expectations of college life.He emphasized that while growth is indeed vertical, powered by continuous learning and deep expertise, the horizontal steps represent the breadth of interdisciplinary skills, adaptability, and collaboration. “To truly thrive in today’s dynamic world,” he remarked, “engineers must not only excel deeply in their core domain but also develop the ability to connect across disciplines and functions — that is the essence of a T-shaped engineer.” His perspective provided the students with a practical and forward-looking framework to approach their academic and professional journey with purpose and direction.
 
-Adding a heartfelt and youthful perspective to the event, I  Harleen Kaur Grewal, a first-year student from the Computer Science branch, took the stage to share my thoughts. In a short yet powerful address, I spoke about stepping into Guru Nanak Dev Engineering College with hope, faith, and determination. Drawing inspiration from the teachings of Guru Nanak Dev Ji, I reminded my fellow students that this institution is not just a place to earn a degree, but a sacred space to discover purpose and inner potential. Quoting, "ਮਨ ਤੂੰ ਜੋਤਿ ਸਰੂਪੁ ਹੈ ਆਪਣਾ ਮੂਲੁ ਪਛਾਣੁ" I encouraged everyone to recognize the divine light within and strive to make a meaningful difference in the world.
+Adding a heartfelt and youthful perspective to the event, I  Harleen Kaur Grewal, a first-year student from the Computer Science branch, took the stage to share my thoughts. In a short yet powerful address, I spoke about stepping into Guru Nanak Dev Engineering College with hope, faith, and determination. Drawing inspiration from the teachings of Guru Nanak Dev Ji, I reminded my fellow students that this institution is not just a place to earn a degree, but a sacred space to discover purpose and inner potential. Quoting, 
+
+"ਮਨ ਤੂੰ ਜੋਤਿ ਸਰੂਪੁ ਹੈ ਆਪਣਾ ਮੂਲੁ ਪਛਾਣੁ" 
+
+I encouraged everyone to recognize the divine light within and strive to make a meaningful difference in the world.
 
 The program was then elevated by the magnetic presence of Dr. Parminder Singh, Dean of Student Welfare, whose motivational words injected a surge of positivity into the auditorium. His emphasis on mental well-being, co-curricular engagement, and balanced growth was both reassuring and empowering.
 
@@ -158,8 +162,12 @@ He emphasized the importance of building a **strong foundation**, noting that wh
 Dr. Singh beautifully connected **science, spirituality, and education**, explaining that **Gurbani is like a seed of success**—which grows into branches, flowers, and fruits, each carrying the potential to plant new beginnings. He spoke of **mathematics as the universal foundation**, the root of time, science, and understanding itself, yet a subject feared by many. Urging students to **face challenges without fear**, he encouraged them to **seek help, stay curious, and trust the learning process**.
 
 Quoting poet **Surjit Patar**, he left a lasting impact with the words:
-*"ਮੈਂ ਰਾਹਾਂ ਤੇ ਨਹੀਂ ਤੁਰਦਾ, ਮੈਂ ਤੁਰਦਾ ਹਾਂ ਤਾਂ ਰਾਹ ਬਣਦੇ ਨੇ"* –
+
+*"ਮੈਂ ਰਾਹਾਂ ਤੇ ਨਹੀਂ ਤੁਰਦਾ,
+ਮੈਂ ਤੁਰਦਾ ਹਾਂ ਤਾਂ ਰਾਹ ਬਣਦੇ ਨੇ"* –
+
 *“I don’t walk on paths, I walk and paths are created.”*
+
 This line became a powerful reminder for students to **lead with courage, create their own journey, and redefine success on their own terms.**
 
 Further enriching his session, Dr. Jaswinder Singh urged the students to realign their focus with purpose and intention. He emphasized that while Gurbani serves as a guiding light, helping one channelize energy and thoughts, the real challenge lies within the students themselves. He poignantly pointed out a fundamental flaw in the current learning culture: “Children sit in classrooms without knowing how to truly be present, without understanding their purpose, or how to manage time—they are living without direction.” Reframing the idea of education, he stated that “classrooms are not just rooms for teaching; they are training grounds for life.”
@@ -167,8 +175,11 @@ Further enriching his session, Dr. Jaswinder Singh urged the students to realign
 He encouraged the students to begin their transformation with self-reflection—to look into the mirror, face themselves with honesty, and have a conversation with their own soul. Drawing inspiration from the legendary Punjabi poet Bhai Veer Singh Ji, he narrated a moving poetic moment where the poet, in deep contemplation, conversed with a rose on a calm morning—and the flower, as if awakened by emotion, seemed to respond. He recited the lines:
 
 "ਡਾਲੀ ਨਾਲੋਂ ਤੋੜ ਨ ਸਾਨੂੰ, ਅਸਾਂ ਹੱਟ 'ਮਹਿਕ' ਦੀ ਲਾਈ!
+
 ਲੱਖ ਗਾਹਕ ਜੇ ਸੁੰਘੇ ਆਕੇ, ਖਾਲੀ ਇਕ ਨ ਜਾਈ,
+
 ਤੂੰ ਜੇ ਇਕ ਤੋੜ ਕੇ ਲੈ ਗਿਓ, ਇਕ ਜੋਗਾ ਰਹਿ ਜਾਸਾਂ,—
+
 ਉਹ ਭੀ ਪਲਕ ਝਲਕ ਦਾ ਮੇਲਾ– ਰੂਪ ਮਹਿਕ ਨਸ ਜਾਈ।੧੩"
 
 Through this sir beautifully conveyed that true essence cannot be plucked, possessed, or rushed—it must be experienced, respected, and allowed to blossom naturally. The poetry was not just a literary reference but a gentle call to the students to live mindfully, seek depth, and honour their own uniqueness, just as a flower spreads fragrance without losing its identity.
@@ -177,23 +188,30 @@ Continuing his deeply philosophical address, Dr. Jaswinder Singh drew a powerful
 
 To encapsulate this thought, he recited a stirring verse by Bhai Veer Singh Ji:
 
-"ਚਸ਼ਮੇ ਦਾ ਉਤ-
-ਸੀਨੇ ਖਿੱਚ ਜਿਨ੍ਹਾਂ ਨੇ ਖਾਧੀ,
+"ਸੀਨੇ ਖਿੱਚ ਜਿਨ੍ਹਾਂ ਨੇ ਖਾਧੀ,
+
 ਓਹ ਕਰ ਅਰਾਮ ਨਹੀਂ ਬਹਿੰਦੇ ।
+
 ਨਿਹੁੰ ਵਾਲੇ ਨੈਣਾਂ ਕੀ ਨੀਂਦਰ,
+
 ਓਹ ਦਿਨੇ ਰਾਤ ਪਏ ਵਹਿੰਦੇ ।"
 
 These lines painted the image of restless yearning—those who have once tasted the pull of deep longing, of true love, of purpose, cannot rest. Their minds and souls, like ever-flowing streams, continue to move—seeking, thinking, questioning. Dr. Singh beautifully tied this to the essence of science itself, saying, “Science begins with wonder—with the desire to know.” In that moment, learning became more than curriculum—it became a journey of the spirit.
 Dr. Jaswinder Singh continued to inspire with the message that life is a once-in-a-lifetime gift—and must be lived with purpose and learning at its core. Emphasizing that true success lies in learning, not just studying, he encouraged students to pursue knowledge with sincerity and curiosity. To illustrate this, he shared a profound anecdote from the childhood of Guru Nanak Dev Ji, where the young Nanak humbly questioned his teacher, Gopal Pandha Ji: "I have written 'One'—but why should I proceed to write 'Two' when I have not yet understood 'One'?" This deep humility and thirst for understanding, he said, is what modern students must rediscover.
 
 Drawing a timeless comparison, Dr. Singh urged students to become seekers like Guru Nanak Dev Ji, who spent his entire life in pursuit of the truth and ultimately arrived at the essence of the divine—ੴ (Ik Onkar). He beautifully explained Guru Nanak Dev Ji’s interpretation:
+
 "ਇਕੁ ਸੰਸਾਰੀ, ਇਕੁ ਭੰਡਾਰੀ, ਇਕੁ ਲਾਏ ਦੀਬਾਣੁ ॥"
+
 " ਜਿਵ ਤਿਸੁ ਭਾਵੈ, ਤਿਵੈ ਚਲਾਵੈ, ਜਿਵ ਹੋਵੈ ਫੁਰਮਾਣੁ ॥"
+
 Meaning that the One is the Creator, Sustainer, and Destroyer—the ultimate power that governs the universe. This story served not just as a spiritual lesson, but also as a reminder to students to ask questions, seek understanding, and learn with depth and reverence.
  He  introduced the students to the concept of ਅਧਿਆਤਮ (spirituality)—the journey inward. He urged everyone to practice introspection, to “see with closed eyes and listen without ears,” reminding us that the answers we seek are not scattered across the world, but reside within us. “We keep searching outside,” he said, “but what is truly lost lies within.”
 
 He recited the shabad:
+
 "ਕੀਤਾ ਪਸਾਉ ਏਕੋ ਕਵਾਉ, ਤਿਸ ਤੇ ਹੋਏ ਲਖ ਦਰੀਆਉ ॥"
+
 (You created the vast expanse of the Universe with One Word. Hundreds of thousands of rivers began to flow.)
 
  It reflects the infinite power of the Divine, whose presence surrounds us at every moment—we only need to change the way we perceive. His message was clear: God exists. Truth exists. But we must learn to seek it with the right vision—the vision of inner awareness.
@@ -221,8 +239,11 @@ He further shared the inspiring story of Carl Friedrich Gauss, who, as a young b
 Throughout the session, students were not only introduced to the wonders of physics but were encouraged to connect scientific thought with self-reflection, purpose, and clarity—an experience that made learning deeply personal, practical, and inspiring.
 
 In one of the most thought-provoking moments of the session, Sir recited the powerful couplet by Allama Iqbal:
+
 "ख़ुदी को कर बुलंद इतना कि हर तक़दीर से पहले,
+
 ख़ुदा बंदे से ख़ुद पूछे, बता तेरी रज़ा क्या है।"
+
 —emphasizing the importance of self-realization and spiritual elevation in shaping one’s destiny.
 
 He then engaged the students in a practical learning activity, asking them about the number of bones in the human body. While many correctly answered "206", none could confidently identify the specific distribution. To make the concept tangible, he invited students on stage to physically count and locate the bones in their own bodies—bridging theoretical knowledge with experiential learning.
@@ -371,7 +392,11 @@ Day 4 concluded on a thoughtful and inspiring note. From technical learning and 
 
 -Lecture By Dr.Lakhvir Singh Khanna(Incharge CML)
 
-Gurcharan Singh Grewal Ji opened the session with a deeply inspiring address, connecting the four Udasis of Shri Guru Nanak Dev Ji with the founding vision of Guru Nanak Dev Engineering College. He emphasized that education is the third eye, meant for upliftment, not profit, criticizing how many institutions today have become businesses — a betrayal of true education. Citing “ਵਿਦਿਆ ਵੀਚਾਰੀ ਤਾਂ ਪਰਉਪਕਾਰੀ ॥ ”, he stressed that real knowledge must benefit society.
+Gurcharan Singh Grewal Ji opened the session with a deeply inspiring address, connecting the four Udasis of Shri Guru Nanak Dev Ji with the founding vision of Guru Nanak Dev Engineering College. He emphasized that education is the third eye, meant for upliftment, not profit, criticizing how many institutions today have become businesses — a betrayal of true education. Citing 
+
+“ਵਿਦਿਆ ਵੀਚਾਰੀ ਤਾਂ ਪਰਉਪਕਾਰੀ ॥ ”,
+
+he stressed that real knowledge must benefit society.
 
 He praised GNDEC for maintaining its purpose through its rural quota and noted that 90% of Bijli Board alumni are from the college. Highlighting the college’s strong reputation, he urged students to respect teachers and parents, maintain ethics, and build communication and maturity. He spoke on the trend of going abroad, encouraging students to go not as laborers but as leaders and job creators.
 
