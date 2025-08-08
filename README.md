@@ -387,6 +387,35 @@ In a short yet impactful session, Mr. Arvind Dhingra inspired students with powe
 
 
 
+***INDUCTION PROGRAMME:DAY 6***
+
+**AUGUST 7,2025**
+
+**#HIGHLIGHTS**
+
+-Lecture by Dr.Parminder Singh(Dean-Student Welfare)
+
+-Lecture by Dr.Amit Kamra(Incharge DMC)
+
+-Lecture by Dr.Randhir Singh on "Conduct of Examination"
+
+**Session by Dr. Amit Kamra – Igniting Digital Creativity**
+
+There was an interactive session by Dr. Amit Kamra, who introduced students to the dynamic world of digital marketing through the Digital Marketing Club (DMC) — a 25-member student-led initiative established in 2019. He emphasized the power of digital presence in today's world, noting how reduced internet costs have opened doors to countless opportunities.
+
+Dr. Kamra stressed that creativity in technicality, not just coding, is key. He spoke about the club’s real-world marketing projects and the value of gaining organic followers, highlighting GNDEC’s own rising digital reputation. The session encouraged students to develop practical skills, collaborative thinking, and to explore various clubs for all-round exposure. With a focus on skill-building, innovation, and platforms like LinkedIn, he left students inspired to grow, adapt, and thrive in a competitive digital era.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
