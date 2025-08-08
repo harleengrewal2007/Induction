@@ -292,6 +292,8 @@ Day 3 of the induction program concluded on a thoughtful and transformative note
 
 -Causmic Club
 
+**"Day 4: Mind, Machines & Meaning — A Journey Within and Beyond"**
+
 Following an insightful morning of peer-to-peer learning in C++ and the foundational concepts of electronics and electrical engineering, students gathered in the auditorium for a thought-provoking session by Priya Darshni Ma’am, centered on Universal Human Values.
 
 Ma’am began by bringing our scattered attention to one universal struggle: Distraction. Through her words, she gradually peeled away the layers of noise we live with — social pressure, external validation, and the unrelenting buzz of the outside world — to reveal something often neglected: our inner voice.
@@ -368,6 +370,12 @@ Day 4 concluded on a thoughtful and inspiring note. From technical learning and 
 -Interactive session by Gurcharan Singh Grewal 
 
 -Lecture By Dr.Lakhvir Singh Khanna(Incharge CML)
+
+Gurcharan Singh Grewal Ji opened the session with a deeply inspiring address, connecting the four Udasis of Shri Guru Nanak Dev Ji with the founding vision of Guru Nanak Dev Engineering College. He emphasized that education is the third eye, meant for upliftment, not profit, criticizing how many institutions today have become businesses — a betrayal of true education. Citing “ਵਿਦਿਆ ਵੀਚਾਰੀ ਤਾਂ ਪਰਉਪਕਾਰੀ ॥ ”, he stressed that real knowledge must benefit society.
+
+He praised GNDEC for maintaining its purpose through its rural quota and noted that 90% of Bijli Board alumni are from the college. Highlighting the college’s strong reputation, he urged students to respect teachers and parents, maintain ethics, and build communication and maturity. He spoke on the trend of going abroad, encouraging students to go not as laborers but as leaders and job creators.
+
+Reflecting on his five years in jail post-1983, he shared lessons of resilience and identity. His address was both spiritual and practical, reminding students that after God, it is the engineer who builds the world, and rekindled the spirit of the college’s golden past through meaningful interaction.
 
 
 
