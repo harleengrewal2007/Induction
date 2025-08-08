@@ -233,6 +233,20 @@ He also spoke passionately about his aspiration to work with humanitarian organi
 
 To illustrate the power of prayer and unwavering devotion, Sir narrated the story of Dhruva, a young prince. After being denied his father's affection due to palace favoritism, Dhruva turned to his mother, who advised him to seek God's love through prayer. At just five years old, he left for the forest and began intense meditation. Despite challenges like wild animals and severe weather, he remained undeterred. Impressed by his devotion, God appeared before Dhruva, but the young boy sought nothing but divine presence. As a reward, God granted him eternal glory, making him shine forever as the Pole Star—Dhruva Tara, a symbol of steadfastness and spiritual triumph.
 
+At one point during the session, Sir wrote the number 108 on the blackboard—prompting curiosity among the students. While many associated the number with the emergency helpline, he offered a much deeper, symbolic interpretation rooted in spirituality, nature, and balance.
+
+He explained that:
+
+The ‘1’ signifies the presence of One Supreme Power—God.
+
+The ‘0’ stands for the cosmic feminine energy and celestial bodies like the Moon, Earth, and Sun—emphasizing that all creation emerges from the feminine.
+
+The ‘8’ represents materialism, wealth, and worldly pursuits.
+
+Together, 1-0-8 becomes a powerful metaphor for life: a reminder that while divine connection (1) and universal creation (0) are essential, one must learn to navigate and balance material existence (8) without losing spiritual grounding.
+
+
+
 
 A key session of the day was conducted by Dr. Priyadarshini, a prominent voice in the field of Universal Human Values. She spoke on the indispensable role of ethics and empathy in technical education and professional life. Her session encouraged students to view engineering not only as a career path but also as a means to serve society with responsibility and integrity.
 
