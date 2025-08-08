@@ -377,6 +377,23 @@ He praised GNDEC for maintaining its purpose through its rural quota and noted t
 
 Reflecting on his five years in jail post-1983, he shared lessons of resilience and identity. His address was both spiritual and practical, reminding students that after God, it is the engineer who builds the world, and rekindled the spirit of the college’s golden past through meaningful interaction.
 
+Dr. Lakhvir Singh Khanna introduced the Centre for Multifaceted Learning (CML) — not just a society, but a visionary platform aimed at the holistic development of students. The Centre focuses on core personality building, alongside technical and professional growth, offering students a dynamic space to learn, create, and evolve.
+
+Through free-of-cost activities and competitions, the CML helps students tackle real-world problems while preparing them for competitive environments. Events like Digital Crosswords, Coding Wars, SolidWorks workshops, and platforms like NPTEL are part of its vibrant learning ecosystem.
+
+From Svayam Gyan projects to cultural showcases like Dastaar Muqabla, the Centre nurtures every dimension of a learner, ensuring that each student finds the opportunity to grow — academically, technically, and personally.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
