@@ -198,6 +198,22 @@ He recited the shabad:
 
  It reflects the infinite power of the Divine, whose presence surrounds us at every moment—we only need to change the way we perceive. His message was clear: God exists. Truth exists. But we must learn to seek it with the right vision—the vision of inner awareness.
 
+**Science of Self and Surroundings: A Session on Physics and Introspection**
+
+Further enriching the day, Dr. Jaswinder Singh conducted an engaging, interactive session that seamlessly blended physics with personal insight. To demonstrate the power of self-awareness and natural laws, he led the students through a simple yet thought-provoking activity—he asked them to stand against a wall and attempt to lift one leg. As neither the students nor he himself could maintain balance, he emphasized the underlying message: we are under our own command, and it is essential to understand the science within us.
+
+He reminded students that physics is the study of nature and natural phenomena, and that the principles of balance and vibration are not only external but internal as well. To illustrate this, he encouraged students to clap and observe how the air molecules vibrated, humorously adding that even bacteria dispersed due to the vibrations—only to land somewhere else. Through this, he stressed the importance of remaining in “vibration mode”—alert, responsive, and in motion.
+
+He then demonstrated a wave transmission activity using a string of straws taped together. When a disturbance was introduced at one end, energy propagated across all the straws—faster when held tightly, and slower when loose. This served as a metaphor: progress and momentum in life are directly linked to our activeness and consistency.
+
+Building on the demonstration, he introduced the fundamental concepts of transverse and longitudinal waves, explaining that both types of waves exist not only in the universe but within ourselves. He spoke about the eyes as optical instruments, explaining how light enables vision—tying basic physics principles to everyday experiences.
+
+In his thought-provoking narrative, he referenced renowned scientists such as Isaac Newton and his discovery of VIBGYOR, and Galileo Galilei, who, despite being misunderstood in his time, is now revered for his contributions. Through these examples, he conveyed that true knowledge often begins with observation and courage to question the norm.
+
+He further shared the inspiring story of Carl Friedrich Gauss, who, as a young boy, amazed his teacher by quickly calculating the sum of numbers from 1 to 100. While others added numbers sequentially, Gauss cleverly paired them—1 and 100, 2 and 99, and so on—recognizing a pattern and arriving at the answer using a simple formula. Dr. Singh used this to emphasize the power of observation, pattern recognition, and thinking beyond conventional methods.
+
+Throughout the session, students were not only introduced to the wonders of physics but were encouraged to connect scientific thought with self-reflection, purpose, and clarity—an experience that made learning deeply personal, practical, and inspiring.
+
 
 
 A key session of the day was conducted by Dr. Priyadarshini, a prominent voice in the field of Universal Human Values. She spoke on the indispensable role of ethics and empathy in technical education and professional life. Her session encouraged students to view engineering not only as a career path but also as a means to serve society with responsibility and integrity.
