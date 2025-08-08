@@ -359,6 +359,15 @@ Day 4 concluded on a thoughtful and inspiring note. From technical learning and 
 
 
 
+**INDUCTION PROGRAMME:DAY 5**
+
+**AUGUST 2,2025**
+
+**#HIGHLIGHTS**
+
+-Interactive session by Gurcharan Singh Grewal 
+
+-Lecture By Dr.Lakhvir Singh Khanna(Incharge CML)
 
 
 
