@@ -424,12 +424,16 @@ In a short yet impactful session, Mr. Arvind Dhingra inspired students with powe
 
 -Lecture by Dr.Randhir Singh on "Conduct of Examination"
 
+Dr. Parminder Singh delivered an encouraging and insightful lecture focusing on the holistic development of students. He emphasized the importance of discipline, integrity, and active participation in both academic and co-curricular activities. Highlighting the role of student welfare, he encouraged students to take responsibility for their growth, make the best use of college resources, and maintain a balanced, value-driven life. His words motivated students to become responsible engineers and compassionate individuals.
+
 **Session by Dr. Amit Kamra – Igniting Digital Creativity**
 
 There was an interactive session by Dr. Amit Kamra, who introduced students to the dynamic world of digital marketing through the Digital Marketing Club (DMC) — a 25-member student-led initiative established in 2019. He emphasized the power of digital presence in today's world, noting how reduced internet costs have opened doors to countless opportunities.
 
 Dr. Kamra stressed that creativity in technicality, not just coding, is key. He spoke about the club’s real-world marketing projects and the value of gaining organic followers, highlighting GNDEC’s own rising digital reputation. The session encouraged students to develop practical skills, collaborative thinking, and to explore various clubs for all-round exposure. With a focus on skill-building, innovation, and platforms like LinkedIn, he left students inspired to grow, adapt, and thrive in a competitive digital era.
 
+
+ Respected Randhir Singh  conducted an informative session focused on the conduct of examinations. He stressed that ignorance of rules is not an excuse, as clearly stated in the constitution. Students were introduced to the academic portal and its functionalities, including online assessments and accessing important exam-related information. He also explained the concept of makeup examinations and emphasized the importance of academic integrity and timely awareness of regulations.
 
 
 
