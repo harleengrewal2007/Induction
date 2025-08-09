@@ -86,12 +86,20 @@ He emphasized that while growth is indeed vertical, powered by continuous learni
 Adding a heartfelt and youthful perspective to the event, I  Harleen Kaur Grewal, a first-year student from the Computer Science branch, took the stage to share my thoughts. In a short yet powerful address, I spoke about stepping into Guru Nanak Dev Engineering College with hope, faith, and determination. Drawing inspiration from the teachings of Guru Nanak Dev Ji, I reminded my fellow students that this institution is not just a place to earn a degree, but a sacred space to discover purpose and inner potential. Quoting, 
 
 "ਮਨ ਤੂੰ ਜੋਤਿ ਸਰੂਪੁ ਹੈ ਆਪਣਾ ਮੂਲੁ ਪਛਾਣੁ" 
-
 I encouraged everyone to recognize the divine light within and strive to make a meaningful difference in the world.
 
-The program was then elevated by the magnetic presence of Dr. Parminder Singh, Dean of Student Welfare, whose motivational words injected a surge of positivity into the auditorium. His emphasis on mental well-being, co-curricular engagement, and balanced growth was both reassuring and empowering.
+The program was then elevated by the magnetic presence of Dr. Parminder Singh, Dean of Student Welfare, whose motivational words injected a surge of positivity into the auditorium.
 
-The event reached a moment of profound inspiration with the keynote address by Dr. Sehajpal Singh, Principal of GNDEC. His visionary words highlighted the importance of integrity, innovation, and intent in academic life. Encouraging students to think beyond the conventional, he invoked them to be architects of change, not just seekers of degrees.He expressed his joy at seeing the auditorium filled exclusively with students from the Computer Science and Information Technology branches—a testament to the growing popularity and demand of these fields in today’s world. He emphasized that while these branches have played a significant role in societal transformation over the past two decades, every branch of engineering holds equal importance in shaping civilization, lifestyle, and the quality of life. Welcoming the students warmly, he highlighted their immense potential and capabilities, reminding them that their growth and success ultimately depend on their own efforts, choices, and dedication.
+![08E1E3ED-FA67-4552-8135-8BB85BA4EA83](https://github.com/user-attachments/assets/73c542c1-d721-4db1-aae8-b102836847d8)
+
+His emphasis on mental well-being, co-curricular engagement, and balanced growth was both reassuring and empowering.
+
+The event reached a moment of profound inspiration with the keynote address by Dr. Sehajpal Singh, Principal of GNDEC. His visionary words highlighted the importance of integrity, innovation, and intent in academic life. Encouraging students to think beyond the conventional, he invoked them to be architects of change, not just seekers of degrees.
+
+
+![Uploading 6FA16399-E911-4BFF-98A1-0A2886377BFE.jpeg…]()
+
+He expressed his joy at seeing the auditorium filled exclusively with students from the Computer Science and Information Technology branches—a testament to the growing popularity and demand of these fields in today’s world. He emphasized that while these branches have played a significant role in societal transformation over the past two decades, every branch of engineering holds equal importance in shaping civilization, lifestyle, and the quality of life. Welcoming the students warmly, he highlighted their immense potential and capabilities, reminding them that their growth and success ultimately depend on their own efforts, choices, and dedication.
 
 The college had the immense honor of hosting two distinguished Guests of Honour:
 
