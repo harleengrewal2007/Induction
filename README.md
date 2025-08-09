@@ -20,6 +20,9 @@ Registration Number:25102736
 
 **INDUCTION PROGRAMME:DAY1**
 
+<img width="4032" height="2501" alt="IMG_4242" src="https://github.com/user-attachments/assets/f99ce9da-91df-4cee-8861-e85ec174f5a6" />
+
+
 ***#HIGHLIGHTS***
 
 -Blessings ceremony at gurduwara sahib
