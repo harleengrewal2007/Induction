@@ -101,7 +101,12 @@ The academic roadmap was further illuminated by Dr. Akshay Giddar, Dean of Acade
 
 He emphasized that while growth is indeed vertical, powered by continuous learning and deep expertise, the horizontal steps represent the breadth of interdisciplinary skills, adaptability, and collaboration. “To truly thrive in today’s dynamic world,” he remarked, “engineers must not only excel deeply in their core domain but also develop the ability to connect across disciplines and functions — that is the essence of a T-shaped engineer.” His perspective provided the students with a practical and forward-looking framework to approach their academic and professional journey with purpose and direction.
 
-Adding a heartfelt and youthful perspective to the event, I  Harleen Kaur Grewal, a first-year student from the Computer Science branch, took the stage to share my thoughts. In a short yet powerful address, I spoke about stepping into Guru Nanak Dev Engineering College with hope, faith, and determination. Drawing inspiration from the teachings of Guru Nanak Dev Ji, I reminded my fellow students that this institution is not just a place to earn a degree, but a sacred space to discover purpose and inner potential. Quoting, 
+Adding a heartfelt and youthful perspective to the event, I  Harleen Kaur Grewal, a first-year student from the Computer Science branch, took the stage to share my thoughts.
+
+
+![IMG_4243](https://github.com/user-attachments/assets/f31fbd5f-95a2-4d58-a06e-9de496d62074)
+
+In a short yet powerful address, I spoke about stepping into Guru Nanak Dev Engineering College with hope, faith, and determination. Drawing inspiration from the teachings of Guru Nanak Dev Ji, I reminded my fellow students that this institution is not just a place to earn a degree, but a sacred space to discover purpose and inner potential. Quoting, 
 
 "ਮਨ ਤੂੰ ਜੋਤਿ ਸਰੂਪੁ ਹੈ ਆਪਣਾ ਮੂਲੁ ਪਛਾਣੁ" 
 I encouraged everyone to recognize the divine light within and strive to make a meaningful difference in the world.
