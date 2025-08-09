@@ -48,7 +48,11 @@ On the serene morning of 31st July, 2025, the campus of Guru Nanak Dev Engineeri
 ![D46F29F5-423C-4190-AC55-E9A89C53F77D](https://github.com/user-attachments/assets/d19ee85a-f664-4a52-85d3-58c48d1ab23f)
 
 
-The proceedings began at 8:30 AM in the sanctified presence of the Gurdwara Sahib, where students gathered in reverence and reflection. The spiritual start infused the day with a profound sense of calm and clarity, setting the tone for the journey ahead.Students were encouraged to observe the unique structure of the Gurdwara Sahib, which resembles a ship (jahaz)—symbolic of the spiritual journey it offers. Inside, the Kirtani Jatha recited soothing shabads, with the profound message “ਵਾਹਿਗੁਰੂ ਨਾਮ ਜਹਾਜ਼ ਹੈ ਚੜੇ ਸੋ ਉਤਰੇ ਪਾਰ”, reminding everyone that the divine name of Waheguru is the vessel that carries souls safely across life’s ocean. A touching moment during the Gurdwara Sahib session was when a young girl soulfully recited prayers and kirtan, while a little boy played the nagada with quiet devotion. 
+The proceedings began at 8:30 AM in the sanctified presence of the Gurdwara Sahib, where students gathered in reverence and reflection. The spiritual start infused the day with a profound sense of calm and clarity, setting the tone for the journey ahead.Students were encouraged to observe the unique structure of the Gurdwara Sahib, which resembles a ship (jahaz)—symbolic of the spiritual journey it offers. Inside, the Kirtani Jatha recited soothing shabads, with the profound message 
+
+“ਵਾਹਿਗੁਰੂ ਨਾਮ ਜਹਾਜ਼ ਹੈ ਚੜੇ ਸੋ ਉਤਰੇ ਪਾਰ”
+
+, reminding everyone that the divine name of Waheguru is the vessel that carries souls safely across life’s ocean. A touching moment during the Gurdwara Sahib session was when a young girl soulfully recited prayers and kirtan, while a little boy played the nagada with quiet devotion. 
 
 ![E62509EC-C784-495A-ADEC-A0A6A9286963](https://github.com/user-attachments/assets/19d85521-d78a-4a66-87ec-e820d38060fe)
 
@@ -224,7 +228,7 @@ The program opened with an engaging and thought-provoking session by Dr. Jaswind
 
 He emphasized the importance of building a **strong foundation**, noting that while the structure may be ready, the **base often remains fragile**—and this is where students must begin. Expressing gratitude for his journey, he humbly acknowledged, *“What I am today is because of ੴ.”*
 
-Dr. Singh beautifully connected **science, spirituality, and education**, explaining that **Gurbani is like a seed of success**—which grows into branches, flowers, and fruits, each carrying the potential to plant new beginnings. He spoke of **mathematics as the universal foundation**, the root of time, science, and understanding itself, yet a subject feared by many. Urging students to **face challenges without fear**, he encouraged them to **seek help, stay curious, and trust the learning process**.
+He beautifully connected **science, spirituality, and education**, explaining that **Gurbani is like a seed of success**—which grows into branches, flowers, and fruits, each carrying the potential to plant new beginnings. He spoke of **mathematics as the universal foundation**, the root of time, science, and understanding itself, yet a subject feared by many. Urging students to **face challenges without fear**, he encouraged them to **seek help, stay curious, and trust the learning process**.
 
 Quoting poet **Surjit Patar**, he left a lasting impact with the words:
 
@@ -274,7 +278,7 @@ Dr. Jaswinder Singh continued to inspire with the message that life is a once-in
 
 To illustrate this, he shared a profound anecdote from the childhood of Guru Nanak Dev Ji, where the young Nanak humbly questioned his teacher, Gopal Pandha Ji: "I have written 'One'—but why should I proceed to write 'Two' when I have not yet understood 'One'?" This deep humility and thirst for understanding, he said, is what modern students must rediscover.
 
-Drawing a timeless comparison, Dr. Singh urged students to become seekers like Guru Nanak Dev Ji, who spent his entire life in pursuit of the truth and ultimately arrived at the essence of the divine—ੴ (Ik Onkar). He beautifully explained Guru Nanak Dev Ji’s interpretation:
+Drawing a timeless comparison, he urged students to become seekers like Guru Nanak Dev Ji, who spent his entire life in pursuit of the truth and ultimately arrived at the essence of the divine—ੴ (Ik Onkar). He beautifully explained Guru Nanak Dev Ji’s interpretation:
 
 "ਇਕੁ ਸੰਸਾਰੀ, ਇਕੁ ਭੰਡਾਰੀ, ਇਕੁ ਲਾਏ ਦੀਬਾਣੁ ॥"
 
