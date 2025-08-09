@@ -475,11 +475,29 @@ Day 3 of the induction program concluded on a thoughtful and transformative note
 
 **"Day 4: Mind, Machines & Meaning — A Journey Within and Beyond"**
 
-Following an insightful morning of peer-to-peer learning in C++ and the foundational concepts of electronics and electrical engineering, students gathered in the auditorium for a thought-provoking session by Priya Darshni Ma’am, centered on Universal Human Values.
+Following an insightful morning of peer-to-peer learning in C++ and the foundational concepts of electronics and electrical engineering,
+
+![527174877_1179223184248394_3466634082004578523_n](https://github.com/user-attachments/assets/e96ec3dc-6817-4ed8-95f3-6c67617cb780)
+
+
+
+![013FFB2B-B591-4FC6-A59C-33BD2F27254D](https://github.com/user-attachments/assets/60a1e562-38b8-472e-aefb-4b1dc18d5626)
+
+
+![63C84C41-DAA9-4C47-BF99-E2F93F094810](https://github.com/user-attachments/assets/cd928d75-afbc-43dd-b226-d743a0293c58)
+
+students gathered in the auditorium for a thought-provoking session by Priya Darshni Ma’am, centered on Universal Human Values.
+
+
+![1B112BB2-9510-4EE1-890F-F244FCC10DB2](https://github.com/user-attachments/assets/6f2fa74b-66f5-42d1-a294-d1aeff82ced1)
+
 
 Ma’am began by bringing our scattered attention to one universal struggle: Distraction. Through her words, she gradually peeled away the layers of noise we live with — social pressure, external validation, and the unrelenting buzz of the outside world — to reveal something often neglected: our inner voice.
 
 She spoke of Natural Acceptance, a state of knowing what is right without external instruction. Much like a car knows its direction when driven with clarity, she explained that we too carry our own answers — we only need to listen. Using the analogy of a circus, she reminded us that while the world may be chaotic, it’s our focus that defines the outcome.
+
+![527307842_1179223060915073_8151483691960705201_n](https://github.com/user-attachments/assets/aaa1c369-699f-46ea-9569-b7618365f240)
+
 
 Addressing emotions like anger, she emphasized that they are natural, but our reaction is our responsibility. Self-control, she said, is not suppression but self-understanding. “Labs don’t just exist in classrooms,” she noted, “they exist in life.” And life, with all its unpredictability, is the real test bed.
 
@@ -492,6 +510,10 @@ Are we living in contradiction, or are we guided by what truly feels right?
 As she spoke on relationship dependency, she laid bare a difficult truth: when our sense of worth depends on someone else's validation, appreciation, or company, we lose our inner anchor. True peace comes when one is independent — guided not by the shifting winds of others’ opinions, but by ethics and self-awareness.
 
 In a world that confuses wants with needs, she beautifully highlighted that physical facilities are for the body, not the self. The body seeks protection and nurture, but the soul seeks continuity of happiness and understanding. These are not given; they are cultivated.
+
+![528729669_1179222990915080_1042829111080113590_n](https://github.com/user-attachments/assets/8725f9ee-1e3a-4e64-92dc-9c02d41010be)
+
+
 
 Her question, “What is life?”, echoed deeply. The answer wasn't given in grand theories, but in a simple reflection —
 
