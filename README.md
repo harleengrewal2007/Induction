@@ -45,7 +45,13 @@ On the serene morning of 31st July, 2025, the campus of Guru Nanak Dev Engineeri
 ![D46F29F5-423C-4190-AC55-E9A89C53F77D](https://github.com/user-attachments/assets/d19ee85a-f664-4a52-85d3-58c48d1ab23f)
 
 
-The proceedings began at 8:30 AM in the sanctified presence of the Gurdwara Sahib, where students gathered in reverence and reflection. The spiritual start infused the day with a profound sense of calm and clarity, setting the tone for the journey ahead.Students were encouraged to observe the unique structure of the Gurdwara Sahib, which resembles a ship (jahaz)—symbolic of the spiritual journey it offers. Inside, the Kirtani Jatha recited soothing shabads, with the profound message “ਵਾਹਿਗੁਰੂ ਨਾਮ ਜਹਾਜ਼ ਹੈ ਚੜੇ ਸੋ ਉਤਰੇ ਪਾਰ”, reminding everyone that the divine name of Waheguru is the vessel that carries souls safely across life’s ocean. A touching moment during the Gurdwara Sahib session was when a young girl soulfully recited prayers and kirtan, while a little boy played the nagada with quiet devotion. Their innocent presence filled the space with pure spiritual energy, leaving a lasting impression on everyone.A special message was shared, emphasizing the importance of respecting and caring for one’s parents, staying rooted in humility, and visiting the Gurdwara Sahib regularly to seek guidance and blessings throughout their academic journey at GNDEC. The one-hour spent there served as a gentle spiritual beginning for all students, instilling gratitude, discipline, and inner strength.
+The proceedings began at 8:30 AM in the sanctified presence of the Gurdwara Sahib, where students gathered in reverence and reflection. The spiritual start infused the day with a profound sense of calm and clarity, setting the tone for the journey ahead.Students were encouraged to observe the unique structure of the Gurdwara Sahib, which resembles a ship (jahaz)—symbolic of the spiritual journey it offers. Inside, the Kirtani Jatha recited soothing shabads, with the profound message “ਵਾਹਿਗੁਰੂ ਨਾਮ ਜਹਾਜ਼ ਹੈ ਚੜੇ ਸੋ ਉਤਰੇ ਪਾਰ”, reminding everyone that the divine name of Waheguru is the vessel that carries souls safely across life’s ocean. A touching moment during the Gurdwara Sahib session was when a young girl soulfully recited prayers and kirtan, while a little boy played the nagada with quiet devotion. 
+
+![E62509EC-C784-495A-ADEC-A0A6A9286963](https://github.com/user-attachments/assets/19d85521-d78a-4a66-87ec-e820d38060fe)
+
+
+
+Their innocent presence filled the space with pure spiritual energy, leaving a lasting impression on everyone.A special message was shared, emphasizing the importance of respecting and caring for one’s parents, staying rooted in humility, and visiting the Gurdwara Sahib regularly to seek guidance and blessings throughout their academic journey at GNDEC. The one-hour spent there served as a gentle spiritual beginning for all students, instilling gratitude, discipline, and inner strength.
 
 
 
