@@ -18,6 +18,11 @@ Registration Number:25102736
 
 **Organized by:** Department of Applied Sciences
 
+
+<img width="1024" height="1024" alt="AFA0883F-4C92-4F81-AC48-71DB7F979F2E" src="https://github.com/user-attachments/assets/29fd0637-92f7-4225-95e2-16997dd9407f" />
+
+
+
 **INDUCTION PROGRAMME:DAY1**
 
 <img width="4032" height="2501" alt="IMG_4242" src="https://github.com/user-attachments/assets/f99ce9da-91df-4cee-8861-e85ec174f5a6" />
