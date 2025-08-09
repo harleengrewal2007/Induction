@@ -96,16 +96,30 @@ His emphasis on mental well-being, co-curricular engagement, and balanced growth
 
 The event reached a moment of profound inspiration with the keynote address by Dr. Sehajpal Singh, Principal of GNDEC. His visionary words highlighted the importance of integrity, innovation, and intent in academic life. Encouraging students to think beyond the conventional, he invoked them to be architects of change, not just seekers of degrees.
 
+![6FA16399-E911-4BFF-98A1-0A2886377BFE](https://github.com/user-attachments/assets/edec041d-3074-450f-878d-cfe47f643f0b)
 
-![Uploading 6FA16399-E911-4BFF-98A1-0A2886377BFE.jpeg…]()
+
 
 He expressed his joy at seeing the auditorium filled exclusively with students from the Computer Science and Information Technology branches—a testament to the growing popularity and demand of these fields in today’s world. He emphasized that while these branches have played a significant role in societal transformation over the past two decades, every branch of engineering holds equal importance in shaping civilization, lifestyle, and the quality of life. Welcoming the students warmly, he highlighted their immense potential and capabilities, reminding them that their growth and success ultimately depend on their own efforts, choices, and dedication.
 
 The college had the immense honor of hosting two distinguished Guests of Honour:
 
-Shri Ravindra Garg, Chief Engineer, Municipal Corporation, Ludhiana, addressed the students with a heartfelt and impactful message. He encouraged them to enjoy their college life but reminded them to do so within limits and with responsibility. Emphasizing the sacrifices and investments made by their parents, he urged students not to take this phase of life lightly. He left them with a powerful thought: “If you choose to enjoy now without discipline, you may suffer later; but if you stay focused now, you will enjoy the fruits of your efforts in the future.” His words served as a timely reminder of the importance of balance, gratitude, and long-term vision in a student’s life.
+Shri Ravindra Garg, Chief Engineer, Municipal Corporation, Ludhiana, addressed the students with a heartfelt and impactful message. He encouraged them to enjoy their college life but reminded them to do so within limits and with responsibility. Emphasizing the sacrifices and investments made by their parents, he urged students not to take this phase of life lightly.
 
-Engineer Rakesh Kumar, a distinguished alumnus from the 1991 batch and currently serving as ADC, Ludhiana, delivered an inspiring address that beautifully bridged the past and present. Reflecting on his own journey from the classrooms of GNDEC to a position of administrative leadership, he credited the college for laying the strong foundation of his career. With deep emotion, he shared the poetic line:
+![A2FE25BE-C8C3-4081-98C2-32D58CE59559](https://github.com/user-attachments/assets/3a9d726c-abad-49d4-9853-f4f81fb39a79)
+
+
+He left them with a powerful thought: “If you choose to enjoy now without discipline, you may suffer later; but if you stay focused now, you will enjoy the fruits of your efforts in the future.” His words served as a timely reminder of the importance of balance, gratitude, and long-term vision in a student’s life.
+
+![63612873-8257-4170-8288-F748399EE42C](https://github.com/user-attachments/assets/32570a51-4e3c-4af5-a1cf-c11904141fb1)
+
+
+Engineer Rakesh Kumar, a distinguished alumnus from the 1991 batch and currently serving as ADC, Ludhiana, delivered an inspiring address that beautifully bridged the past and present.
+
+![4EC47D49-2B7C-49EA-B182-F9B47C2D7D8C](https://github.com/user-attachments/assets/ebe0dfe3-5d00-41bc-91ec-e6c63c27e9f7)
+
+
+Reflecting on his own journey from the classrooms of GNDEC to a position of administrative leadership, he credited the college for laying the strong foundation of his career. With deep emotion, he shared the poetic line:
 
 “ਕਲੇਜੇ ਤੀਰ ਦੇਖਣ ਨੂੰ, ਤੇ ਸਿਰ ਤੇ ਤਾਜ ਦੇਖਣ ਨੂੰ,
 
@@ -115,7 +129,11 @@ Engineer Rakesh Kumar, a distinguished alumnus from the 1991 batch and currently
 
 "Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful." – Albert Schweitzer
 
-The event concluded on a high note with a captivating interaction with Shri Ashok Singla, Financial Advisor, whose experiential wisdom and encouraging words provided the students with valuable direction. His pragmatic approach to career, finance, and life planning left a lasting impression on the audience.He addressed a crucial aspect of every student’s academic journey—financial planning. He introduced the students to the Vidya Lakshmi Education Loan Scheme, a government-backed portal that acts as a single-window platform for students seeking education loans. Shri Singla explained how the portal connects students with multiple banks and allows them to apply for loans, track applications, and receive guidance through a streamlined and transparent process. His session was especially beneficial for students who may require financial assistance to pursue their academic goals. By highlighting this resource, he encouraged students not to let financial constraints hinder their aspirations and assured them that support is available through proper channels when approached with the right intent and planning.
+The event concluded on a high note with a captivating interaction with Shri Ashok Singla, Financial Advisor, whose experiential wisdom and encouraging words provided the students with valuable direction. His pragmatic approach to career, finance, and life planning left a lasting impression on the audience.He addressed a crucial aspect of every student’s academic journey—financial planning.
+
+
+
+He introduced the students to the Vidya Lakshmi Education Loan Scheme, a government-backed portal that acts as a single-window platform for students seeking education loans. Shri Singla explained how the portal connects students with multiple banks and allows them to apply for loans, track applications, and receive guidance through a streamlined and transparent process. His session was especially beneficial for students who may require financial assistance to pursue their academic goals. By highlighting this resource, he encouraged students not to let financial constraints hinder their aspirations and assured them that support is available through proper channels when approached with the right intent and planning.
 
 
 
