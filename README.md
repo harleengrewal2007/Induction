@@ -209,9 +209,6 @@ The third day of the Student Induction Program 2025 at Guru Nanak Dev Engineerin
 
 The program opened with an engaging and thought-provoking session by Dr. Jaswinder Singh, recipient of the Siksharatan Award, who brought science to life through interactive demonstrations and live experiments. His unique teaching style sparked curiosity and transformed traditional learning into a memorable experience for the students.
 
-The event was further elevated by the presence of the Chief Guest, Sardar Gurcharan Singh Grewal, a respected member of the Shiromani Gurdwara Parbandhak Committee (SGPC) and the Nankana Sahib Education Trust. In his address, he emphasized the need to uphold cultural and moral values while pursuing academic success. His words resonated with the students, urging them to remain grounded, disciplined, and focused as they navigate their educational journey.
-
-
 **Dr. Jaswinder Singh’s** session was not only educational but deeply **philosophical and inspiring**. He began by engaging students with the profound meaning behind the greeting *"Sat Sri Akal"*, encouraging them to reflect on its spiritual depth. With a powerful message of **"doing less, but doing it with efficiency and focus,"** he motivated students to value clarity and depth in learning over mere quantity. Highlighting the **role of teachers as guides and well-wishers**, he reminded students that while everything may feel new, the faculty's mission is to **support, uplift, and help them rise**.
 
 He emphasized the importance of building a **strong foundation**, noting that while the structure may be ready, the **base often remains fragile**—and this is where students must begin. Expressing gratitude for his journey, he humbly acknowledged, *“What I am today is because of ੴ.”*
@@ -331,6 +328,9 @@ In a lively demonstration, Sir poured fuel into a bottle, lit it, and the bottle
 
 
 In a powerful moment, Sir wrote "ਭਗਵਾਨ" on the board and said, “Now you can't say you've never seen God.” He explained that the universe was created with five elements, and even today, science has not discovered a sixth. No one has the power to unite these five elements the way the Creator did.
+
+
+The event was further elevated by the presence of the Chief Guest, Sardar Gurcharan Singh Grewal, a respected member of the Shiromani Gurdwara Parbandhak Committee (SGPC) and the Nankana Sahib Education Trust. In his address, he emphasized the need to uphold cultural and moral values while pursuing academic success. His words resonated with the students, urging them to remain grounded, disciplined, and focused as they navigate their educational journey.
 
 **Embracing the Essence of Life: A Soulful Session by Priya Darshni Ma’am**
 
