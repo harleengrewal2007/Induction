@@ -54,9 +54,15 @@ The proceedings began at 8:30 AM in the sanctified presence of the Gurdwara Sahi
 Their innocent presence filled the space with pure spiritual energy, leaving a lasting impression on everyone.A special message was shared, emphasizing the importance of respecting and caring for one’s parents, staying rooted in humility, and visiting the Gurdwara Sahib regularly to seek guidance and blessings throughout their academic journey at GNDEC. The one-hour spent there served as a gentle spiritual beginning for all students, instilling gratitude, discipline, and inner strength.
 
 
+![8B98A6B3-8ACB-4693-988E-59009AA4F752](https://github.com/user-attachments/assets/c9f9d5be-d4e2-4fbc-b976-ba3d49b1c17b)
 
 
-The inaugural session was opened by the ever-inspiring Mr. Harsimran Singh Jaggi, whose eloquent address traced the rich legacy and unwavering vision of GNDEC. He vividly outlined the institution's pursuit of academic brilliance, research innovation, and student empowerment, emphasizing the holistic development that the college champions. His words were not merely informative, but ignited a flame of aspiration within every young heart.
+The inaugural session was opened by the ever-inspiring Mr. Harsimran Singh Jaggi, whose eloquent address traced the rich legacy and unwavering vision of GNDEC.
+
+![1E290581-5839-413B-871C-E3EBAF470AE7](https://github.com/user-attachments/assets/c0b53b35-597f-414d-b318-4f32ac91817f)
+
+
+He vividly outlined the institution's pursuit of academic brilliance, research innovation, and student empowerment, emphasizing the holistic development that the college champions. His words were not merely informative, but ignited a flame of aspiration within every young heart.
 
 Following this, the spotlight turned to two exemplary voices from the 2021–2025 batch, who returned to their alma mater not as students, but as torchbearers of success.
 
@@ -131,6 +137,7 @@ Reflecting on his own journey from the classrooms of GNDEC to a position of admi
 
 The event concluded on a high note with a captivating interaction with Shri Ashok Singla, Financial Advisor, whose experiential wisdom and encouraging words provided the students with valuable direction. His pragmatic approach to career, finance, and life planning left a lasting impression on the audience.He addressed a crucial aspect of every student’s academic journey—financial planning.
 
+![EF47B226-CDD5-45E7-A2F5-15EF1DF549F7](https://github.com/user-attachments/assets/e1a64516-80f2-421d-8e93-19591d2f86ff)
 
 
 He introduced the students to the Vidya Lakshmi Education Loan Scheme, a government-backed portal that acts as a single-window platform for students seeking education loans. Shri Singla explained how the portal connects students with multiple banks and allows them to apply for loans, track applications, and receive guidance through a streamlined and transparent process. His session was especially beneficial for students who may require financial assistance to pursue their academic goals. By highlighting this resource, he encouraged students not to let financial constraints hinder their aspirations and assured them that support is available through proper channels when approached with the right intent and planning.
