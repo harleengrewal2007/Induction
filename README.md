@@ -278,9 +278,15 @@ Drawing a timeless comparison, Dr. Singh urged students to become seekers like G
 
 "ਇਕੁ ਸੰਸਾਰੀ, ਇਕੁ ਭੰਡਾਰੀ, ਇਕੁ ਲਾਏ ਦੀਬਾਣੁ ॥"
 
+![0F5AEC4A-3CEE-4212-903D-E82DB3F4065C](https://github.com/user-attachments/assets/e991784e-2abb-43a0-a2fb-1294abf525f5)
+
+
+Meaning that the One is the Creator, Sustainer, and Destroyer—the ultimate power that governs the universe.
+
 " ਜਿਵ ਤਿਸੁ ਭਾਵੈ, ਤਿਵੈ ਚਲਾਵੈ, ਜਿਵ ਹੋਵੈ ਫੁਰਮਾਣੁ ॥"
 
-Meaning that the One is the Creator, Sustainer, and Destroyer—the ultimate power that governs the universe. This story served not just as a spiritual lesson, but also as a reminder to students to ask questions, seek understanding, and learn with depth and reverence.
+
+This story served not just as a spiritual lesson, but also as a reminder to students to ask questions, seek understanding, and learn with depth and reverence.
 
 
  He  introduced the students to the concept of ਅਧਿਆਤਮ (spirituality)—the journey inward. He urged everyone to practice introspection, to “see with closed eyes and listen without ears,” reminding us that the answers we seek are not scattered across the world, but reside within us. “We keep searching outside,” he said, “but what is truly lost lies within.”
@@ -319,15 +325,34 @@ When a disturbance was introduced at one end, energy propagated across all the s
 
 Building on the demonstration, he introduced the fundamental concepts of transverse and longitudinal waves, explaining that both types of waves exist not only in the universe but within ourselves. He spoke about the eyes as optical instruments, explaining how light enables vision—tying basic physics principles to everyday experiences.
 
-In his thought-provoking narrative, he referenced renowned scientists such as Isaac Newton and his discovery of VIBGYOR, and Galileo Galilei, who, despite being misunderstood in his time, is now revered for his contributions. Through these examples, he conveyed that true knowledge often begins with observation and courage to question the norm.  
+In his thought-provoking narrative, he referenced renowned scientists such as Isaac Newton and his discovery of VIBGYOR
+
+
+![6C032E5A-A676-41F6-A97B-672F4F628F6B_4_5005_c](https://github.com/user-attachments/assets/b308598b-68f6-414a-8aeb-99f1046ab706)
+
+and Galileo Galilei, who, despite being misunderstood in his time, is now revered for his contributions.
+
+![4DB318D2-AD2E-44E8-9246-589B741ED5A3_4_5005_c](https://github.com/user-attachments/assets/d9650670-f5ea-48f5-8159-d3bc43015004)
+
+
+Through these examples, he conveyed that true knowledge often begins with observation and courage to question the norm.  
 
 In a deeply symbolic demonstration, he introduced the students to the singing bowl—a traditional instrument known for producing meditative sound frequencies. Initially, he struck the bowl to produce two distinct sounds—one harmonious and pleasant, the other discordant and unsettling. This contrast illustrated how not all noise is music, and not all speech is understanding.
+
+![1F32A5BD-3908-4794-B22C-F432DEC33B9A (1)](https://github.com/user-attachments/assets/1623b33f-166f-49d4-8454-56d1acddbbd1)
+
+
 
 He then began to gently rotate the mallet around the rim of the bowl, gradually creating a resonant, calming tone that enveloped the room. The sustained vibration that emerged was soothing and beautiful, in stark contrast to the earlier jarring sounds.
 
 Through this, he conveyed a powerful metaphor: just as the bowl produces its most harmonious sound when approached with patience and the right technique, students too must learn to truly "listen" to their teachers. He likened the teacher’s role to the guiding hand that carefully draws out a student’s potential—transforming dissonance into resonance. When students attune themselves to learning with focus and respect, the outcome can be as profound and beautiful as the music of the singing bowl.
 
-He further shared the inspiring story of Carl Friedrich Gauss, who, as a young boy, amazed his teacher by quickly calculating the sum of numbers from 1 to 100. While others added numbers sequentially, Gauss cleverly paired them—1 and 100, 2 and 99, and so on—recognizing a pattern and arriving at the answer using a simple formula. Dr. Singh used this to emphasize the power of observation, pattern recognition, and thinking beyond conventional methods.
+He further shared the inspiring story of Carl Friedrich Gauss, who, as a young boy, amazed his teacher by quickly calculating the sum of numbers from 1 to 100.
+
+![2A9070D4-3C12-44C3-9E86-9C7ACF8E405A_4_5005_c](https://github.com/user-attachments/assets/1ccb5058-d0b2-4488-b975-85d8667dc0e3)
+
+
+While others added numbers sequentially, Gauss cleverly paired them—1 and 100, 2 and 99, and so on—recognizing a pattern and arriving at the answer using a simple formula. Dr. Singh used this to emphasize the power of observation, pattern recognition, and thinking beyond conventional methods.
 
 Throughout the session, students were not only introduced to the wonders of physics but were encouraged to connect scientific thought with self-reflection, purpose, and clarity—an experience that made learning deeply personal, practical, and inspiring.
 
@@ -341,13 +366,27 @@ In one of the most thought-provoking moments of the session, Sir recited the pow
 
 He then engaged the students in a practical learning activity, asking them about the number of bones in the human body. While many correctly answered "206", none could confidently identify the specific distribution. To make the concept tangible, he invited students on stage to physically count and locate the bones in their own bodies—bridging theoretical knowledge with experiential learning.
 
-Expanding the discourse into the realm of faith and service, he touched upon the Khalsa Panth, highlighting the role of prayer as the seed of action, which then blossoms into branches, flowers, and fruits—each bearing new seeds. Through this metaphor, he conveyed that consistent spiritual practice cultivates growth, purpose, and impact.
+Expanding the discourse into the realm of faith and service, he touched upon the Khalsa Panth, highlighting the role of prayer as the seed of action, which then blossoms into branches, flowers, and fruits—each bearing new seeds. 
 
-He also spoke passionately about his aspiration to work with humanitarian organizations like the Red Cross and Khalsa Aid, underlining the value of selfless service, empathy, and global citizenship in the life of a student.
+
+![E5D0FE1E-A48E-4244-8974-1B4D04F0C1D2_1_201_a](https://github.com/user-attachments/assets/2cb2328d-9eb6-44b4-b04f-47a76d01cda2)
+
+Through this metaphor, he conveyed that consistent spiritual practice cultivates growth, purpose, and impact.
+
+He also spoke passionately about his aspiration to work with humanitarian organizations like the Red Cross and Khalsa Aid,
+
+
+![F98EABF3-D57E-4616-9E95-330FCB5AEEE8_4_5005_c](https://github.com/user-attachments/assets/5eb0bf2d-231c-40ae-a9aa-81a10b21c61c)
+
+underlining the value of selfless service, empathy, and global citizenship in the life of a student.
 
 To illustrate the power of prayer and unwavering devotion, Sir narrated the story of Dhruva, a young prince. After being denied his father's affection due to palace favoritism, Dhruva turned to his mother, who advised him to seek God's love through prayer. At just five years old, he left for the forest and began intense meditation. Despite challenges like wild animals and severe weather, he remained undeterred. Impressed by his devotion, God appeared before Dhruva, but the young boy sought nothing but divine presence. As a reward, God granted him eternal glory, making him shine forever as the Pole Star—Dhruva Tara, a symbol of steadfastness and spiritual triumph.
 
 At one point during the session, Sir wrote the number 108 on the blackboard—prompting curiosity among the students. While many associated the number with the emergency helpline, he offered a much deeper, symbolic interpretation rooted in spirituality, nature, and balance.
+
+
+
+![5087DD61-4CF3-4884-AAAD-798CEF600B10](https://github.com/user-attachments/assets/45d95438-5ddf-4c62-b200-811325b3c11b)
 
 He explained that:
 
@@ -359,7 +398,11 @@ The ‘8’ represents materialism, wealth, and worldly pursuits.
 
 Together, 1-0-8 becomes a powerful metaphor for life: a reminder that while divine connection (1) and universal creation (0) are essential, one must learn to navigate and balance material existence (8) without losing spiritual grounding.
 
-Emphasizing the power of consistent devotion, Sir quoted the sacred verse from Sukhmani Sahib Ji — “ਸਿਮਰਉ ਸਿਮਰਿ ਸਿਮਰਿ ਸੁਖ ਪਾਵਉ” — to beautifully underline the importance of repetition in prayer and remembrance of the Divine.
+Emphasizing the power of consistent devotion, Sir quoted the sacred verse from Sukhmani Sahib Ji —
+
+“ਸਿਮਰਉ ਸਿਮਰਿ ਸਿਮਰਿ ਸੁਖ ਪਾਵਉ” 
+
+— to beautifully underline the importance of repetition in prayer and remembrance of the Divine.
 
 Furthermore, to deepen the students' understanding of numerical significance, Sir explained that the number 9 symbolizes the universe and holds the key to many mathematical mysteries and solutions. To demonstrate this, he invited a student to write any three-digit number with distinct digits on the board. He then asked the student to reverse the digits and subtract the smaller number from the larger one. To everyone’s amazement, the result of the subtraction consistently turned out to be 247. This simple yet powerful exercise left the students in awe of the inherent patterns and symmetry in mathematics, reinforcing the idea that numbers, too, are a reflection of the universe’s divine order.
 
