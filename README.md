@@ -528,6 +528,11 @@ She began with a strong analogy — the force water pump — to demonstrate that
 "To be a good human being," she said, "you need to apply that inner force every single day."
 
 Harpreet Ma’am emphasized that our mind is the fastest entity in the universe — faster than sound, faster than light — and if left unchecked, it can spiral out of control. But if mastered, it becomes the most powerful tool one can possess.
+
+![BC031C18-6849-48CA-BC07-97EE879EDDD8](https://github.com/user-attachments/assets/b6ba22ed-777f-4a0c-9e29-a22994f83260)
+
+
+
 She likened this to a remote control, which must lie in our hands, not in the hands of distractions, anger, or comparison.
 
 She reminded us that life is a loop — we are not trapped in it, but we often create our own loops of behavior, emotion, and overthinking. The only way to break these loops is by facing ourselves honestly. Stay honest with yourself, she said, because the moment you lie to yourself, your direction is lost.
@@ -535,6 +540,10 @@ She reminded us that life is a loop — we are not trapped in it, but we often c
 Harpreet Ma’am also deeply acknowledged Priya Darshni Ma’am’s selfless contribution, highlighting how someone with a PhD in Electronics, capable of earning accolades and riches, chose to give direction to society without asking for a single rupee. A true example of intention over transaction, purpose over position.
 
 She then guided us toward understanding engineering not just as a subject, but as a mindset.
+
+![2DDB252C-4086-49D8-890D-01ECD75C3FCF_1_201_a](https://github.com/user-attachments/assets/eed4bcbd-774b-4928-952a-2a0ed0878aef)
+
+
 
 “Problem-solving in engineering begins when you learn to counsel yourself.”
 “No problem is above you. Nothing in life is greater than your will to overcome.”
@@ -545,14 +554,24 @@ Harpreet Ma’am also delved into the emotional spectrum of life — dukh and su
 
 “Life is a lesson — not always easy, not always fair — but always rich with meaning. You are not just moving from birth to death, you are shaping your destination along the way.”
 
+![B7936A4E-7BCF-4DFD-A0AC-A07106792DF6_1_201_a](https://github.com/user-attachments/assets/d8b1fbbf-887b-4506-8506-e2c26d405dda)
+
+
+
 She concluded with a truth many of us needed to hear — that anger, often born from thoughts, is more damaging to us than anyone else.
 
-“Soch ke gussa aunda hai, par sab ton vadda nuksaan apna hi hunda hai.”
 
 Your willingness to learn, your intention, and your inner voice must become your guiding light. And when that happens, you will no longer be waiting for life to give you meaning —
 you will become the meaning yourself.
 
 The day also marked the official launch of the Causmic Club, where the executive members were introduced with great excitement and promise for student-led initiatives ahead.
+
+![C5C7FC60-946A-4E5E-BE46-0589BA8AE41B](https://github.com/user-attachments/assets/93ae28cf-1881-4ac3-8f46-5e08a2dd979a)
+
+
+![D7A4E97D-DFEA-4641-B049-E0AF02E9188B](https://github.com/user-attachments/assets/9d7396fc-cff3-44c0-a40a-c99062908473)
+
+
 
 This was followed by an insightful session by Ayush Sir, who guided students on how to choose the perfect laptop—breaking down specifications, needs, and budgets in a simple, practical manner.
 
@@ -580,13 +599,28 @@ Gurcharan Singh Grewal Ji opened the session with a deeply inspiring address, co
 
 he stressed that real knowledge must benefit society.
 
+![IMG_3680 3](https://github.com/user-attachments/assets/81ff3586-95d4-4e5d-a82d-d38283a84aa8)
+
+
+
 He praised GNDEC for maintaining its purpose through its rural quota and noted that 90% of Bijli Board alumni are from the college. Highlighting the college’s strong reputation, he urged students to respect teachers and parents, maintain ethics, and build communication and maturity. He spoke on the trend of going abroad, encouraging students to go not as laborers but as leaders and job creators.
 
 Reflecting on his five years in jail post-1983, he shared lessons of resilience and identity. His address was both spiritual and practical, reminding students that after God, it is the engineer who builds the world, and rekindled the spirit of the college’s golden past through meaningful interaction.
 
-Dr. Lakhvir Singh Khanna introduced the Centre for Multifaceted Learning (CML) — not just a society, but a visionary platform aimed at the holistic development of students. The Centre focuses on core personality building, alongside technical and professional growth, offering students a dynamic space to learn, create, and evolve.
+Dr. Lakhvir Singh Khanna introduced the Centre for Multifaceted Learning (CML) — not just a society, but a visionary platform aimed at the holistic development of students. 
+
+![IMG_3682 3](https://github.com/user-attachments/assets/16102628-7c97-4392-a103-7e297dc20ac5)
+
+
+The Centre focuses on core personality building, alongside technical and professional growth, offering students a dynamic space to learn, create, and evolve.
+
+![1CFD0E1F-D3A7-4259-B480-DD6814C1ABDE](https://github.com/user-attachments/assets/b21096d5-0bdf-40ae-a5bc-4784dd0216d5)
+
 
 Through free-of-cost activities and competitions, the CML helps students tackle real-world problems while preparing them for competitive environments. Events like Digital Crosswords, Coding Wars, SolidWorks workshops, and platforms like NPTEL are part of its vibrant learning ecosystem.
+
+![ABE9ECF3-CA2B-443E-8C45-D3442C1FDFD3](https://github.com/user-attachments/assets/26fc2874-9e1a-472e-8d43-7e4b43c527b9)
+
 
 From Svayam Gyan projects to cultural showcases like Dastaar Muqabla, the Centre nurtures every dimension of a learner, ensuring that each student finds the opportunity to grow — academically, technically, and personally.
 
@@ -606,13 +640,29 @@ In a short yet impactful session, Mr. Arvind Dhingra inspired students with powe
 
 -Lecture by Dr.Randhir Singh on "Conduct of Examination"
 
+![8F90296A-ABEF-4D8A-B6AA-9B730A5E725C_1_201_a](https://github.com/user-attachments/assets/2e127043-e148-4b7e-afac-095f11a7e1e4)
+
+
+
 Dr. Parminder Singh delivered an encouraging and insightful lecture focusing on the holistic development of students. He emphasized the importance of discipline, integrity, and active participation in both academic and co-curricular activities. Highlighting the role of student welfare, he encouraged students to take responsibility for their growth, make the best use of college resources, and maintain a balanced, value-driven life. His words motivated students to become responsible engineers and compassionate individuals.
 
 **Session by Dr. Amit Kamra – Igniting Digital Creativity**
 
-There was an interactive session by Dr. Amit Kamra, who introduced students to the dynamic world of digital marketing through the Digital Marketing Club (DMC) — a 25-member student-led initiative established in 2019. He emphasized the power of digital presence in today's world, noting how reduced internet costs have opened doors to countless opportunities.
+There was an interactive session by Dr. Amit Kamra, who introduced students to the dynamic world of digital marketing through the Digital Marketing Club (DMC) —
 
-Dr. Kamra stressed that creativity in technicality, not just coding, is key. He spoke about the club’s real-world marketing projects and the value of gaining organic followers, highlighting GNDEC’s own rising digital reputation. The session encouraged students to develop practical skills, collaborative thinking, and to explore various clubs for all-round exposure. With a focus on skill-building, innovation, and platforms like LinkedIn, he left students inspired to grow, adapt, and thrive in a competitive digital era.
+![IMG_3703 2](https://github.com/user-attachments/assets/7eb7b641-5aaa-414b-b7a0-28710dc8b938)
+
+
+a 25-member student-led initiative established in 2019. He emphasized the power of digital presence in today's world, noting how reduced internet costs have opened doors to countless opportunities.
+
+
+
+Dr. Kamra stressed that creativity in technicality, not just coding, is key. He spoke about the club’s real-world marketing projects and the value of gaining organic followers, highlighting GNDEC’s own rising digital reputation.
+
+![IMG_3704 2](https://github.com/user-attachments/assets/fd0fbe2d-89c7-465e-a147-d2fbbecb702f)
+
+
+The session encouraged students to develop practical skills, collaborative thinking, and to explore various clubs for all-round exposure. With a focus on skill-building, innovation, and platforms like LinkedIn, he left students inspired to grow, adapt, and thrive in a competitive digital era.
 
 
  Respected Randhir Singh  conducted an informative session focused on the conduct of examinations. He stressed that ignorance of rules is not an excuse, as clearly stated in the constitution. Students were introduced to the academic portal and its functionalities, including online assessments and accessing important exam-related information. He also explained the concept of makeup examinations and emphasized the importance of academic integrity and timely awareness of regulations.
