@@ -366,7 +366,7 @@ He further shared the inspiring story of Carl Friedrich Gauss, who, as a young b
 ![2A9070D4-3C12-44C3-9E86-9C7ACF8E405A_4_5005_c](https://github.com/user-attachments/assets/1ccb5058-d0b2-4488-b975-85d8667dc0e3)
 
 
-While others added numbers sequentially, Gauss cleverly paired them—1 and 100, 2 and 99, and so on—recognizing a pattern and arriving at the answer using a simple formula. Dr. Singh used this to emphasize the power of observation, pattern recognition, and thinking beyond conventional methods.
+While others added numbers sequentially, Gauss cleverly paired them—1 and 100, 2 and 99, and so on—recognizing a pattern and arriving at the answer using a simple formula. He used this to emphasize the power of observation, pattern recognition, and thinking beyond conventional methods.
 
 Throughout the session, students were not only introduced to the wonders of physics but were encouraged to connect scientific thought with self-reflection, purpose, and clarity—an experience that made learning deeply personal, practical, and inspiring.
 
