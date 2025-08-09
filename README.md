@@ -264,7 +264,7 @@ To encapsulate this thought, he recited a stirring verse by Bhai Veer Singh Ji:
 
 ਓਹ ਦਿਨੇ ਰਾਤ ਪਏ ਵਹਿੰਦੇ ।"
 
-These lines painted the image of restless yearning—those who have once tasted the pull of deep longing, of true love, of purpose, cannot rest. Their minds and souls, like ever-flowing streams, continue to move—seeking, thinking, questioning. Dr. Singh beautifully tied this to the essence of science itself, saying, “Science begins with wonder—with the desire to know.” In that moment, learning became more than curriculum—it became a journey of the spirit.
+These lines painted the image of restless yearning—those who have once tasted the pull of deep longing, of true love, of purpose, cannot rest. Their minds and souls, like ever-flowing streams, continue to move—seeking, thinking, questioning. He beautifully tied this to the essence of science itself, saying, “Science begins with wonder—with the desire to know.” In that moment, learning became more than curriculum—it became a journey of the spirit.
 
 
 Dr. Jaswinder Singh continued to inspire with the message that life is a once-in-a-lifetime gift—and must be lived with purpose and learning at its core. Emphasizing that true success lies in learning, not just studying, he encouraged students to pursue knowledge with sincerity and curiosity.
@@ -409,14 +409,30 @@ Furthermore, to deepen the students' understanding of numerical significance, Si
 In a lively demonstration, Sir poured fuel into a bottle, lit it, and the bottle shot into the air. He explained that oxygen is essential for burning, and carbon dioxide is a byproduct. Through this, he illustrated the basic principle of how vehicle engines work.
 
 
-In a powerful moment, Sir wrote "ਭਗਵਾਨ" on the board and said, “Now you can't say you've never seen God.” He explained that the universe was created with five elements, and even today, science has not discovered a sixth. No one has the power to unite these five elements the way the Creator did.
+In a powerful moment, Sir wrote "ਭਗਵਾਨ" on the board and said, “Now you can't say you've never seen God.” 
+
+![E75D3137-EEAF-4483-8CD2-89D127D798FC](https://github.com/user-attachments/assets/f50464fc-8d6d-4028-bc75-77d95d8350b7)
 
 
-The event was further elevated by the presence of the Chief Guest, Sardar Gurcharan Singh Grewal, a respected member of the Shiromani Gurdwara Parbandhak Committee (SGPC) and the Nankana Sahib Education Trust. In his address, he emphasized the need to uphold cultural and moral values while pursuing academic success. His words resonated with the students, urging them to remain grounded, disciplined, and focused as they navigate their educational journey.
+
+He explained that the universe was created with five elements, and even today, science has not discovered a sixth. No one has the power to unite these five elements the way the Creator did.
+
+
+The event was further elevated by the presence of the Chief Guest, Sardar Gurcharan Singh Grewal, a respected member of the Shiromani Gurdwara Parbandhak Committee (SGPC) and the Nankana Sahib Education Trust. 
+
+
+
+![A2015CC1-B98B-4382-A01C-88E1AC2B4D2D](https://github.com/user-attachments/assets/5b7cbc50-0c2a-4062-85ee-79134179decd)
+
+
+In his address, he emphasized the need to uphold cultural and moral values while pursuing academic success. His words resonated with the students, urging them to remain grounded, disciplined, and focused as they navigate their educational journey.
 
 **Embracing the Essence of Life: A Soulful Session by Priya Darshni Ma’am**
 
 In a deeply reflective and emotionally stirring session, Priya Darshni Ma’am guided students through the often-overlooked corridors of the human heart and mind under the theme of Universal Human Values. Her words resonated like a quiet call to awaken—not just academically, but spiritually and emotionally.
+
+![0AC8FF32-8DAD-4F7E-89AE-988FFBDB7D68](https://github.com/user-attachments/assets/5bdc6ff8-5061-454c-8869-c75c27eb0a71)
+
 
 She invited students to pause and truly ask themselves: What is my aim? What is my passion? Am I moving towards it, or away from it? She spoke not just of careers or academics, but of dreams, aspirations, and the silent desires of the soul—the ones we often bury beneath expectations and noise.
 
@@ -424,6 +440,11 @@ Ma’am beautifully unfolded the truth that being independent is not just about 
 
 She posed heartfelt questions that made everyone pause and reflect:
 Have the 15 or 18 years we’ve lived so far brought us closer to joy, or further into stress? Are we racing ahead or losing our way? Are we building a future or just surviving the present?
+
+
+![62076D83-C2C9-4160-9435-B59418916591](https://github.com/user-attachments/assets/c9bf6f96-b1b0-4951-8a3e-656cc565afa3)
+
+
 
 Her message was clear and powerful: Happiness is not a destination but a direction. And prosperity is not just about wealth, but about inner richness, balance, and contentment. But to walk this path, we must first open our eyes, and then our hearts.
 
