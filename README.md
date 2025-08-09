@@ -171,7 +171,12 @@ I extend my heartfelt gratitude to the management, faculty, organizing team,all 
 
 The day dawned bright as Day 2 of the Student Induction Programme at Guru Nanak Dev Engineering College, Ludhiana, unfolded with a strong focus on academic readiness and holistic wellness. The schedule included English and Mathematics Proficiency Tests, designed to help students evaluate their foundational skills and identify key areas for growth as they embark on their engineering journey. The structured assessments served as the first step in aligning students with the academic expectations of the institution.
 
-Another important segment of Day 2 was the introduction of the Satya Scholarship Programme, a valuable initiative aimed at supporting and empowering meritorious students with financial assistance and skill-building opportunities. Professionals from Noida, representing the organization behind the scholarship, addressed the students and provided a comprehensive overview of the program. They elaborated on the eligibility criteria, application process, and long-term benefits of the scholarship, highlighting how it is designed not only to alleviate financial burdens but also to promote academic excellence, leadership, and social responsibility among students.
+Another important segment of Day 2 was the introduction of the Satya Scholarship Programme, a valuable initiative aimed at supporting and empowering meritorious students with financial assistance and skill-building opportunities. 
+
+![A10AD40D-606E-40DD-993F-F156AED72D0A](https://github.com/user-attachments/assets/51de7a02-49ac-46ce-9af7-e8dc55014152)
+
+
+Professionals from Noida, representing the organization behind the scholarship, addressed the students and provided a comprehensive overview of the program. They elaborated on the eligibility criteria, application process, and long-term benefits of the scholarship, highlighting how it is designed not only to alleviate financial burdens but also to promote academic excellence, leadership, and social responsibility among students.
 
 Throughout the session, Mrs. Harpreet Kaur Garewal, Head of the Department of Applied Sciences, actively engaged with the students, encouraging them to ask questions and clarify doubts. Her interactive approach helped bridge the communication between the presenters and the students, ensuring that the information was well understood and accessible to all. Her presence added a personal and motivational touch to the session, inspiring students to take advantage of such opportunities that can significantly enhance their educational journey.
 
@@ -184,6 +189,9 @@ He cautioned against the excessive consumption of refined sugars and carbonated 
 Furthermore, he addressed popular fitness misconceptions, clarifying doubts related to the use of protein supplements among gym-going students. He explained the science behind macronutrients and stressed the importance of sourcing proteins and nutrients from natural, balanced diets over commercial products whenever possible.
 
 One particularly impactful moment came when he addressed a common myth surrounding vitiligo, clarifying that it is a hereditary condition, not one caused by any particular food combination. His empathetic approach helped dispel fears and remove stigma related to the condition.
+
+
+![84A107F2-818B-4036-8712-3E6C7603F6F8](https://github.com/user-attachments/assets/e4a1ac71-cdd7-4a15-a28a-8be230ef4799)
 
 He concluded the session by encouraging students to make informed dietary choices, manage their stress levels to avoid emotional overeating, and approach wellness with a balanced and educated mindset. His talk was not only informative but also highly engaging, leaving students with a deeper appreciation of how food choices directly impact their academic success, physical health, and emotional well-being.
 
@@ -211,6 +219,9 @@ The program opened with an engaging and thought-provoking session by Dr. Jaswind
 
 **Dr. Jaswinder Singh’s** session was not only educational but deeply **philosophical and inspiring**. He began by engaging students with the profound meaning behind the greeting *"Sat Sri Akal"*, encouraging them to reflect on its spiritual depth. With a powerful message of **"doing less, but doing it with efficiency and focus,"** he motivated students to value clarity and depth in learning over mere quantity. Highlighting the **role of teachers as guides and well-wishers**, he reminded students that while everything may feel new, the faculty's mission is to **support, uplift, and help them rise**.
 
+
+![873E071B-954E-4A17-8541-D16839FB2E14](https://github.com/user-attachments/assets/ff1e62dd-781b-4a55-915e-b8342c801de7)
+
 He emphasized the importance of building a **strong foundation**, noting that while the structure may be ready, the **base often remains fragile**—and this is where students must begin. Expressing gratitude for his journey, he humbly acknowledged, *“What I am today is because of ੴ.”*
 
 Dr. Singh beautifully connected **science, spirituality, and education**, explaining that **Gurbani is like a seed of success**—which grows into branches, flowers, and fruits, each carrying the potential to plant new beginnings. He spoke of **mathematics as the universal foundation**, the root of time, science, and understanding itself, yet a subject feared by many. Urging students to **face challenges without fear**, he encouraged them to **seek help, stay curious, and trust the learning process**.
@@ -236,6 +247,9 @@ He encouraged the students to begin their transformation with self-reflection—
 
 ਉਹ ਭੀ ਪਲਕ ਝਲਕ ਦਾ ਮੇਲਾ– ਰੂਪ ਮਹਿਕ ਨਸ ਜਾਈ।੧੩"
 
+![8AF5F432-D799-4731-B237-B0E202174DDE_4_5005_c](https://github.com/user-attachments/assets/38855700-f20d-4bd5-b2c9-694bfaddd306)
+
+
 Through this sir beautifully conveyed that true essence cannot be plucked, possessed, or rushed—it must be experienced, respected, and allowed to blossom naturally. The poetry was not just a literary reference but a gentle call to the students to live mindfully, seek depth, and honour their own uniqueness, just as a flower spreads fragrance without losing its identity.
 
 Continuing his deeply philosophical address, Dr. Jaswinder Singh drew a powerful metaphor from nature—the flow of water. He asked a simple yet profound question: “Does water ever stop?” The answer, echoing in silence, became the basis of his reflection on movement, persistence, and purpose. Just like water, he said, a seeker, a learner, a dreamer must keep flowing—uninterrupted and unafraid.
@@ -251,7 +265,14 @@ To encapsulate this thought, he recited a stirring verse by Bhai Veer Singh Ji:
 ਓਹ ਦਿਨੇ ਰਾਤ ਪਏ ਵਹਿੰਦੇ ।"
 
 These lines painted the image of restless yearning—those who have once tasted the pull of deep longing, of true love, of purpose, cannot rest. Their minds and souls, like ever-flowing streams, continue to move—seeking, thinking, questioning. Dr. Singh beautifully tied this to the essence of science itself, saying, “Science begins with wonder—with the desire to know.” In that moment, learning became more than curriculum—it became a journey of the spirit.
-Dr. Jaswinder Singh continued to inspire with the message that life is a once-in-a-lifetime gift—and must be lived with purpose and learning at its core. Emphasizing that true success lies in learning, not just studying, he encouraged students to pursue knowledge with sincerity and curiosity. To illustrate this, he shared a profound anecdote from the childhood of Guru Nanak Dev Ji, where the young Nanak humbly questioned his teacher, Gopal Pandha Ji: "I have written 'One'—but why should I proceed to write 'Two' when I have not yet understood 'One'?" This deep humility and thirst for understanding, he said, is what modern students must rediscover.
+
+
+Dr. Jaswinder Singh continued to inspire with the message that life is a once-in-a-lifetime gift—and must be lived with purpose and learning at its core. Emphasizing that true success lies in learning, not just studying, he encouraged students to pursue knowledge with sincerity and curiosity.
+
+![F673A710-22A5-40B6-9F00-6CDF4A4AD251](https://github.com/user-attachments/assets/6ed683c6-52ec-4702-a267-4a350f199069)
+
+
+To illustrate this, he shared a profound anecdote from the childhood of Guru Nanak Dev Ji, where the young Nanak humbly questioned his teacher, Gopal Pandha Ji: "I have written 'One'—but why should I proceed to write 'Two' when I have not yet understood 'One'?" This deep humility and thirst for understanding, he said, is what modern students must rediscover.
 
 Drawing a timeless comparison, Dr. Singh urged students to become seekers like Guru Nanak Dev Ji, who spent his entire life in pursuit of the truth and ultimately arrived at the essence of the divine—ੴ (Ik Onkar). He beautifully explained Guru Nanak Dev Ji’s interpretation:
 
@@ -260,6 +281,8 @@ Drawing a timeless comparison, Dr. Singh urged students to become seekers like G
 " ਜਿਵ ਤਿਸੁ ਭਾਵੈ, ਤਿਵੈ ਚਲਾਵੈ, ਜਿਵ ਹੋਵੈ ਫੁਰਮਾਣੁ ॥"
 
 Meaning that the One is the Creator, Sustainer, and Destroyer—the ultimate power that governs the universe. This story served not just as a spiritual lesson, but also as a reminder to students to ask questions, seek understanding, and learn with depth and reverence.
+
+
  He  introduced the students to the concept of ਅਧਿਆਤਮ (spirituality)—the journey inward. He urged everyone to practice introspection, to “see with closed eyes and listen without ears,” reminding us that the answers we seek are not scattered across the world, but reside within us. “We keep searching outside,” he said, “but what is truly lost lies within.”
 
 He recited the shabad:
@@ -274,9 +297,25 @@ He recited the shabad:
 
 Further enriching the day, Dr. Jaswinder Singh conducted an engaging, interactive session that seamlessly blended physics with personal insight. To demonstrate the power of self-awareness and natural laws, he led the students through a simple yet thought-provoking activity—he asked them to stand against a wall and attempt to lift one leg. As neither the students nor he himself could maintain balance, he emphasized the underlying message: we are under our own command, and it is essential to understand the science within us.
 
+
+![BC29131E-C003-466A-8919-EF265570A28D](https://github.com/user-attachments/assets/a7d840e8-528b-42d4-85bf-56162a0d7c79)
+
 He reminded students that physics is the study of nature and natural phenomena, and that the principles of balance and vibration are not only external but internal as well. To illustrate this, he encouraged students to clap and observe how the air molecules vibrated, humorously adding that even bacteria dispersed due to the vibrations—only to land somewhere else. Through this, he stressed the importance of remaining in “vibration mode”—alert, responsive, and in motion.
 
-He then demonstrated a wave transmission activity using a string of straws taped together. When a disturbance was introduced at one end, energy propagated across all the straws—faster when held tightly, and slower when loose. This served as a metaphor: progress and momentum in life are directly linked to our activeness and consistency.
+<img width="2543" height="2046" alt="1A4166CA-B275-4B37-81E1-8804959B72A8_1_201_a (1)" src="https://github.com/user-attachments/assets/5c363718-bab9-458b-aae2-36c7c6a7194b" />
+
+
+He then demonstrated a wave transmission activity using a string of straws taped together. 
+
+
+<img width="4032" height="3024" alt="66604F2A-AC2A-4158-B0DB-4CE89F289915 (1)" src="https://github.com/user-attachments/assets/cbd4ede6-8359-4ca8-80b5-e6eaebd45860" />
+
+
+When a disturbance was introduced at one end, energy propagated across all the straws—faster when held tightly, and slower when loose. This served as a metaphor: progress and momentum in life are directly linked to our activeness and consistency.
+
+![EDA1077C-5706-4B79-B405-B6AD1CD372FA](https://github.com/user-attachments/assets/656763b0-bc35-4b30-bca0-f81f2f042660)
+
+
 
 Building on the demonstration, he introduced the fundamental concepts of transverse and longitudinal waves, explaining that both types of waves exist not only in the universe but within ourselves. He spoke about the eyes as optical instruments, explaining how light enables vision—tying basic physics principles to everyday experiences.
 
